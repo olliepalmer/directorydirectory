@@ -18,12 +18,10 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-title: Scripted Design
-email: om.palmer@avans.nl
+title: Directory Directory
+email: github@olliepalmer.com
 description: >- # this means to ignore newlines until "baseurl:"
-  Scripted Design, an elective course within the Situated Design Masters course
-  at the Masters Institute for Visual Cultures, AKV St Joost, and run by
-  Ollie Palmer.
+  The Directory Directory
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: _olliepalmer
@@ -37,7 +35,7 @@ plugins:
 footer_content:
   "Copyright &copy; 2019 Ollie Palmer. Site content distributed under an
   <a href=\"https://github.com/pmarsceill/just-the-docs/tree/master/LICENSE.txt\">MIT license</a>
-  (you are free to reuse content as you like); student work remains their property."
+  (you are free to reuse content as you like)."
 
 search_enabled: true
 

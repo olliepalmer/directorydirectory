@@ -3,30 +3,13 @@
 # To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
 
 layout: home
-title: Scripted Design
+title: Directory Directory
 ---
 
 
 
 
 
-![](/assets/net-int1.jpg)
+# Directory Directory
 
-
-
-# Welcome to Scripted Design
-
-## 27 Sep - 06 Dec 2019
-{: .no_toc}
-
-## A 10-week course at the Masters Institute of Visual Cultures at AKV St Joost, open for students of Situated Design, Visual Culture, and Ecological Futures
-{: .no_toc}
-
-### This is the course website with all of the course documentation, exercises, etc. New activities will be uploaded each week, and we'll upload a lot of our work here.
-{: .no_toc}
-
-This course is open-source, so anybody is free to take the content and use it in their own practice. Students retain ownership and copyright of their own work.
-
-Students' work will be shown at [V2_ Institute for the Unstable Media](https://v2.nl) on 17 December 2019.
-
-[Practical information](/about/){: .btn .btn-blue .mr-2} [Student research](/research/){: .btn .mr-2} [Resources + references](/resources/){: .btn}
+## Home of the directory. Look for the directory for all your dirctory needs!
