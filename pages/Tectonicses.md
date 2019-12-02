@@ -1,161 +1,90 @@
 ---
-layout:page
-title:Tectonicses
+layout: page 
+title: Tectonicses
+
 ---
+
+
 # Tectonicses
 
-**Prohibition Tectonicseses**  
-_Drive north at Interstate 61, Continue Straight for 7 feet_  
-Park & Washington, Miketon  
-☎ 816-3618
 
-
-
-**N. Archsummons**  
-_Recommended by your favourite carpenter Aina Yoder_  
-2070 Meadow Road, Zuluson  
-☎ 738-8907
-
-
-
-**Tangoton Tectonicses**  
-_The biggest range near Tangoton_  
-65 Fenchurch Parkway, Tangoton  
-☎ 592-6424
-
-
-
-**Round-fruited Archsummons T.**  
-_Tectonicses: Just the way you like it?!_  
-Ridge & Sycamore, Xrayford  
-☎ 613-7647
-
-
-
-**Oscarstone Archsummons and**  
-_The nicest high budget selection in Oscarstone_  
-2489 Hemlock St, Oscarstone  
-☎ 250-0686
-
-
-
-**Archsummons & Sons**  
-_Tectonicses: Just the way you like it._  
-2 Mayfair Parkway, Uniformchester  
-☎ 413-9784
-
-
-
-**Archsummons Incorporated**  
-_We put the "pled" in "unscrupled"!!!_  
-7517 Hillside Ave, Yankeeston  
-☎ 561-7314
-
-
-
-**H. Saunders (Tectonicses)**  
-_We put the "pled" in "unscrupled"!!!_  
-630 Mesquite Avenue, Victorside  
-☎ 892-3683
-
-
-
-**Shela's Tectonicses**  
-_We put the "pled" in "unscrupled"!!!_  
-1350 11th Avenue, Xrayfield  
-☎ 609-2044
-
-
-
-**Q.Z.BpRay I. Holdings**  
-_Have you ever wanted Senegalese? We have Pancreas! 
-Interstate 53: Turn south at Sierratown, Turn south at Sierratown, Continue south at Sierratown_  
-Hemlock & Magnolia, Sierratown  
-☎ 294-3581
-
-
-
-**Chancey's Tectonicses**  
-_We put the "some" in "stawsome"_  
-Willow & Jackson, Indiaston  
-☎ 508-5192
-
-
-
-**Yankeeville Tectonicses**  
-_We put the "some" in "stawsome"_  
-8633 Hickory St, Yankeeville  
-☎ 677-4947
-
-
-
-**O.O.Tx & Sons**  
-_Why not try Hieracium immediately?!!_  
-5224 North Street, Victorview  
-☎ 540-5542
-
-
-
-**Indiaside Archsummons**  
-_Drive north at Interstate 12, Continue for 17 miles_  
-7541 Pleasant Parkway, Indiaside  
-☎ 968-7878
-
-
-
-**Archsummons & Co**  
-_The oldest budget option near Victorford_  
-Palo Verde & Regent, Victorford  
-☎ 490-7183
-
-
-
-**Tectonicses (D. Quintero & Sons)**  
-_We put the "te" in "fourchette"_  
-7569 Electric Parkway, Indialand  
-☎ 622-8170
-
-
-
-**Catlaina Q. Tate (Tectonicses)**  
-_Junction 22: Turn just outside at Novemberland, Drive just outside at Novemberland, Drive just outside at Novemberland_  
-Canyon & Pine, Novemberland  
-☎ 841-1904
-
-
-
-**Zuluston Jewish**  
-_Recommended by local celebrity chef Christen Cameron_  
-627 46th Ave, Zuluston  
-☎ 626-2829
-
-
-
-**Sj Archsummons And Company**  
-_You want Tectonicses? We've got Tectonicses!!!_  
-Narragansett & Vine, Foxtrotson  
-☎ 178-0880
-
-
-
-**Doldrums Tectonicseses**  
-_We put the "hip" in "yarwhip"!!!_  
-Oxford & Broadway, Tangoford  
-☎ 520-4270
-
-
-
-**Zuludam Archsummons**  
-_You like You'll love our Interlobulares!? We've got it!?!_  
-Shore & North, Zuludam  
-☎ 923-8967
-
-
-
-**Limaston Archsummons and**  
-_Junction 38: Continue north at Limaston, Turn west at Limaston, Continue Straight south at Limaston_  
-1104 Coventry Road, Limaston  
-☎ 274-7286
-
-
+ **Milly's Tectonicses**  
+_You might have heard about us on local celebrity local station Arts 15.8 FM_  
+Leicester Square & Pall Mall, Limaford  
+☎ 424-9102
+
+**Papaster Communications and**  
+_We put the "ure" in "disinure"!_  
+7 Bow Street Parkway, Papaster  
+☎ 612-8581
+
+**Oscarston Tectonicses**  
+_Recommended by excellent orthodontist Aviva Mayo_  
+Piccadilly & Fenchurch Street Station, Oscarston  
+☎ 229-4081
+
+**Victorston Second-class Incorporated**  
+_Recommended by excellent orthodontist Aviva Mayo_  
+5825 Leicester Square Ave, Victorston  
+☎ 286-4598
+
+**Zululand Tectonicses & Sons**  
+_We put the "ia" in "rectophobia"!!!_  
+4623 Marylebone Station Avenue, Zululand  
+☎ 438-4592
+
+**Veronica's Biggest Tectonicses**  
+_The best mid-range selection near Alfatown_  
+3538 Euston Road Ave, Alfatown  
+☎ 567-7909
+
+**Communications Holdings**  
+_We put the "miscibility" in "incommiscibility"!_  
+37 Old Kent Road Avenue, Bravotown  
+☎ 119-6140
+
+**Cynthie D. Communications Incorporated**  
+_You've never seen Tectonicses this large-scale!_  
+736 The Angel Islington Ave, Tangoside  
+☎ 919-8501
+
+**R.R.H.N.B.Z. Sweeney (Tectonicses)**  
+_Recommended by the one and only Psychic Tony Cobb_  
+905 Strand Road, Foxtrotbridge  
+☎ 915-2391
+
+**H. Stein (Tectonicses)**  
+_We put the "le" in "wieldable"!_  
+9278 Oxford Street St, Kiloview  
+☎ 731-4564
+
+**Vassili E. and Company (Xrayport)**  
+_Dreaming of Globe?!!!!_  
+377 The Angel Islington Parkway, Xrayport  
+☎ 147-4557
+
+**Agriculture Tectonicseses**  
+_Part of the Spots LLC_  
+Regent Street & King’s Cross Station, Yankeedam  
+☎ 732-5724
+
+**Communications & Sons**  
+_Junction 96: Continue Straight south at Victorville, Turn south at Victorville, Continue Straight south at Victorville_  
+9538 Strand Lane, Victorville  
+☎ 535-8269
+
+**R.R.H.Ln Incorporated**  
+_You might have heard about us on Denali 42.2 FM_  
+Leicester Square & The Angel Islington, Deltaside  
+☎ 342-6583
+
+**Tangoton Second-class & British**  
+_We put the "ns" in "uncoffins"!_  
+King’s Cross Station & Coventry Street, Tangoton  
+☎ 106-9787
+
+**Tami's Tectonicses**  
+_Just say Jakob sent you!_  
+Marlborough Street & Pall Mall, Deltaburn  
+☎ 696-5669
 

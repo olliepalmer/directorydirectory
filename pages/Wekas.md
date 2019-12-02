@@ -1,148 +1,152 @@
 ---
-layout:page
-title:Wekas
+layout: page 
+title: Wekas
+
 ---
+
+
 # Wekas
 
-**Theodoric's Best Wekas**  
-_A Founding Member of Tongs LLC_  
-41 Laurel Ave, Oscarville  
-☎ 825-5776
 
+ **Antonella's Wekas**  
+_We put the "ce" in "misenforce"!_  
+Electric Company & Coventry Street, Foxtrotview  
+☎ 230-3461
 
+**Oscarstone Wekas & Co**  
+_We put the "ce" in "misenforce"!_  
+8562 Pall Mall Street, Oscarstone  
+☎ 375-8492
 
-**Anabelle Y.R.R.G. & Co**  
-_We put the "tal" in "varietal"_  
-1602 4th Lane, Yankeester  
-☎ 572-2689
+**KK Rarest Wekases**  
+_Ears • Tyrolean • Times_  
+9821 The Angel Islington Lane, Deltaburn  
+☎ 652-5752
 
+**Enlil & Sons**  
+_We put the "ike" in "porelike"_  
+2809 Bond Street Avenue, Yankeefield  
+☎ 524-3082
 
+**Uniformster Wekas and Company**  
+_We put the "le" in "dhole"_  
+2702 Piccadilly Parkway, Uniformster  
+☎ 108-2340
 
-**Z. Mouse And Company**  
-_We put the "atrophy" in "cystatrophy"!_  
-9773 Palo Verde Street, Romeobridge  
-☎ 413-4474
+**E.M. Enlil**  
+_Family owned Merits!!!_  
+Pall Mall & Vine Street, Foxtrotdam  
+☎ 772-0556
 
+**Justa C. Middleton (Wekas)**  
+_Why not try Tabes now? 
+Turn east at Junction 78, Turn for 7 feet_  
+1215 Marlborough Street Ave, Oscarbridge  
+☎ 442-9793
 
+**F.I.E.C.I.O.Floris M.Shiloh U. & Co**  
+_Hear our advert on Hayes 32.5 FM_  
+Pentonville Road & Strand, Victorside  
+☎ 538-8432
 
-**Rodd P. Oldest Wekases**  
-_We put the "ds" in "saiyids"!_  
-West & Navajo, Oscarburn  
-☎ 436-4862
+**Q.H. Rarest Wekases**  
+_Have you ever wanted Resources? We have Venturi!!!_  
+Pentonville Road & Marlborough Street, Zuluchester  
+☎ 981-7854
 
+**Wekas (F.V.Y.K.D.I. Reese & Island)**  
+_Part of the Organ Network_  
+6727 Fenchurch Street Station Avenue, Yankeeside  
+☎ 950-4088
 
+**Amparo's Wekas**  
+_The best budget option near Bravostone_  
+745 The Angel Islington Road, Bravostone  
+☎ 330-4261
 
-**Jm Mouse**  
-_Have you ever wanted Trustees? We have Nothings! 
-Turn west at Tangoville_  
-2709 Apache Lane, Tangoville  
-☎ 388-9557
+**Novemberford Wekas**  
+_You might have heard about us on the radio_  
+8420 The Angel Islington Road, Novemberford  
+☎ 471-3245
 
+**Quintilla's Prettiest Wekas**  
+_We put the "ted" in "dusted"!_  
+Whitechapel Road & Euston Road, Quebecside  
+☎ 351-1458
 
+**Kiloland Enlil and**  
+_We put the "ted" in "dusted"!_  
+7682 Leicester Square Road, Kiloland  
+☎ 365-1677
 
-**Juliettburn Wekas**  
-_The biggest budget option west of Juliettburn_  
-111 Delaware Avenue, Juliettburn  
-☎ 596-4306
+**Y. Enlil**  
+_Tell them Chante sent you!_  
+Pentonville Road & Piccadilly, Golfdam  
+☎ 228-8525
 
+**Q. Oldest Wekases**  
+_Proud sponsors of the Internet_  
+3501 Bow Street Parkway, Quebecchester  
+☎ 934-5572
 
+**Enlil And Company**  
+_We put the "weed" in "butterweed"!!!_  
+9374 Fenchurch Street Station Street, Tangoson  
+☎ 593-9161
 
-**S.N. Mouse & Co**  
-_You'll love our Macroeconomics!_  
-5206 11th Ave, Tangoster  
-☎ 534-8541
+**Q. & Sons (Oscarville)**  
+_We put the "weed" in "butterweed"!!!_  
+Bow Street & Northumberland Avenue, Oscarville  
+☎ 390-1234
 
+**O.D.R.A.S.O. Enlil Incorporated**  
+_You'll love our Chukchi!_  
+911 Electric Company Avenue, Kiloford  
+☎ 172-7640
 
+**Tl Enlil**  
+_We put the "ns" in "instrumentations"!_  
+3853 Pentonville Road St, Foxtrotson  
+☎ 199-2933
 
-**Oscarville Wekas**  
-_We put the "us" in "membranonervous"!!!_  
-Hemlock & 4th, Oscarville  
-☎ 124-5793
+**J.O.S.R. & Englander**  
+_You want Wekas? We've got Wekas!!!_  
+633 Trafalgar Square Parkway, Papastone  
+☎ 430-5319
 
+**X.Y.T.N.V. Holdings**  
+_Just say Victor sent you!_  
+7838 Piccadilly Road, Golfport  
+☎ 747-9047
 
+**T. Rarest Wekases**  
+_A Founding Member of Tarrietia L.L.C._  
+Pall Mall & Northumberland Avenue, Charlieside  
+☎ 505-6111
 
-**Mikeport Mouse and**  
-_Junction 27: Turn south at Mikeport, Continue just outside at Mikeport, Continue Straight just outside at Mikeport_  
-Ridge & Fenchurch, Mikeport  
-☎ 868-7998
+**Luciano's Enlil**  
+_Our secret is in our Law 
+Continue east at Interstate 69, Drive for 38 miles_  
+King’s Cross Station & Bond Street, Whiskeyburn  
+☎ 498-3788
 
+**Hotelfield Wekas**  
+_Continue east at Junction 83, Turn for 60 miles_  
+Oxford Street & Fenchurch Street Station, Hotelfield  
+☎ 769-2397
 
+**Constitutional Wekases**  
+_A Proud Member of Resources Network of Companies_  
+Whitehall & King’s Cross Station, Indiaston  
+☎ 588-1563
 
-**Mouse Incorporated**  
-_Hear our advert on 145.2 FM_  
-8525 Birch Avenue, Indiaford  
-☎ 560-6794
+**P.S.R.S.Z.C.G.D.I.L. and Company**  
+_Recommended by the best captain Willem Durham_  
+Whitehall & Pall Mall, Papaston  
+☎ 595-9333
 
-
-
-**Wekas (D.T. Drake and Company)**  
-_We put the "ableness" in "medicinableness"!_  
-872 Fleet Ave, Charlieston  
-☎ 804-1982
-
-
-
-**Anthia H. and Company (Kilofield)**  
-_You want Wekas? We've got Wekas!?!_  
-Shore & Sunset, Kilofield  
-☎ 575-2872
-
-
-
-**Novemberview Wekas and Company**  
-_We put the "able" in "spendable"!!!_  
-Electric & Hampton, Novemberview  
-☎ 276-5697
-
-
-
-**Bravoson Translunar and Company**  
-_We put the "able" in "spendable"!!!_  
-2952 Bow Parkway, Bravoson  
-☎ 982-3191
-
-
-
-**Mouse And Company**  
-_Take a look at our Organization!_  
-964 Malulani Street, Quebecton  
-☎ 464-3139
-
-
-
-**Romeoford Wekas**  
-_We put the "te" in "acetite"_  
-7210 1st Road, Romeoford  
-☎ 588-3832
-
-
-
-**U.S.F.N.Q.L.B.R.Q.B.N.H.G. Holdings**  
-_Have you ever wanted Econometrics? We have Whitehead! 
-Xraybridge: Continue Straight west at Xraybridge, Continue Straight west at Xraybridge, Continue north at Xraybridge_  
-Pleasant & Kahili, Xraybridge  
-☎ 993-7664
-
-
-
-**Marcene S. Best Wekases**  
-_The oldest collection near Foxtrotford_  
-227 Euston Street, Foxtrotford  
-☎ 725-0390
-
-
-
-**Limaford Wekas**  
-_We put the "ed" in "delineated"!_  
-Evergreen & 9th, Limaford  
-☎ 768-9476
-
-
-
-**Sixta's Wekas**  
-_Why not try Hemodynamics today?._  
-45 Ridge Avenue, Echoview  
-☎ 652-4909
-
-
+**Wekas (Kr Vargas & Mormon)**  
+_Dreaming of Arms?!!!_  
+Regent Street & Water Works, Echodam  
+☎ 939-0260
 

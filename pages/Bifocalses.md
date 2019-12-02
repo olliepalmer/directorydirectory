@@ -1,34 +1,25 @@
 ---
-layout:page
-title:Bifocalses
+layout: page 
+title: Bifocalses
+
 ---
+
+
 # Bifocalses
 
-**Y. New & Co**  
-_The oldest collection in Romeoland_  
-9 11th Street, Romeoland  
-☎ 450-8137
 
+ **Victorland Bifocalses Incorporated**  
+_We put the "ology" in "demology"_  
+3382 Electric Company Lane, Victorland  
+☎ 227-4224
 
+**Architectonics Bifocalseses**  
+_You'll love our Psychophysics!_  
+Liverpool Street Station & Coventry Street, Bravodam  
+☎ 327-3011
 
-**Bifocalses (S.B.A.H.G.X. Wu Incorporated)**  
-_We put the "plight" in "unplight"_  
-8079 Center Parkway, Juliettland  
-☎ 657-6255
-
-
-
-**B.P.Y.E.H.Y. Bifocalses**  
-_Hear our advert on Don 26.9 FM_  
-7386 Spruce Road, Golfson  
-☎ 685-3657
-
-
-
-**Hn New**  
-_Recommended by the best Psychic Whittaker Cook_  
-297 Lakeview Parkway, Alfafield  
-☎ 592-8740
-
-
+**Dv Janus & Connolly**  
+_Norman • First • Volvariella_  
+6935 The Angel Islington Road, Echoville  
+☎ 951-2645
 

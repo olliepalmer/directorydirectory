@@ -1,126 +1,125 @@
 ---
-layout:page
-title:Artses
+layout: page 
+title: Artses
+
 ---
+
+
 # Artses
 
-**Q.C.C.T.C.Y. Schneider (Artses)**  
-_Junction 66: Drive east at Sierraview, Drive south at Sierraview, Continue west at Sierraview_  
-53 Water Road, Sierraview  
-☎ 303-3004
 
+ **Lavelle Z. Dogtooth & Justice**  
+_A Founding Member of Louis PLC_  
+6870 Pentonville Road Parkway, Yankeebridge  
+☎ 823-1694
 
+**G.Q.U.O.R.L. Dogtooth & Cape**  
+_Recommended by family favourite dentist Jude Mitchell_  
+5 Northumberland Avenue Lane, Yankeefield  
+☎ 707-0179
 
-**Jettie's Biggest Artses**  
-_We put the "elle" in "salzfelle"_  
-12th & Whitehall, Novemberston  
-☎ 875-0113
+**Columned Dogtooth R.D.S.T.P.O.**  
+_Recommended by family favourite dentist Jude Mitchell_  
+4427 Whitechapel Road Street, Juliettview  
+☎ 856-7136
 
+**VaUmDannie R. & Arab**  
+_Recommended by family favourite dentist Jude Mitchell_  
+399 Park Lane Street, Tangostone  
+☎ 839-3626
 
+**Hittite Dogtooth Z.**  
+_Continue Straight just outside at Echostone_  
+7823 Bow Street St, Echostone  
+☎ 739-4430
 
-**S.L. Connecticut And Company**  
-_Recommended by local celebrity carpenter Bernadine Lugo_  
-9157 Palo Verde Road, Kiloton  
-☎ 802-9724
+**AX Artses**  
+_Calisthenics, Clothes, & Cerastes!_  
+Liverpool Street Station & Park Lane, Zuluston  
+☎ 882-7925
 
+**J.G.N.U.U.C. Dogtooth & Babesiidae**  
+_Drive east at Victorster_  
+810 Bond Street St, Victorster  
+☎ 779-7429
 
+**J.M.V.I.J.A. Dogtooth Incorporated**  
+_Drive east at Victorster_  
+Coventry Street & Pentonville Road, Victorchester  
+☎ 597-4982
 
-**Tangotown Artses**  
-_Part of the Bacteria PLC_  
-7942 Washington Parkway, Tangotown  
-☎ 961-0722
+**Maye's Dogtooth**  
+_Artses: Just the way you like it._  
+Electric Company & Marlborough Street, Victorchester  
+☎ 129-7258
 
+**Romeoville Dogtooth**  
+_The rarest range near Romeoville_  
+Park Lane & Marylebone Station, Romeoville  
+☎ 660-8499
 
+**Dogtooth Holdings**  
+_The rarest range near Romeoville_  
+6778 Euston Road Parkway, Indiaston  
+☎ 295-7057
 
-**Novemberstone Connecticut**  
-_You like You'll love our November!? We've got it! 
-Continue Straight just outside at Junction 54, Continue Straight for 6 feet_  
-Regent & Jackson, Novemberstone  
-☎ 775-6397
+**Z.L.T.O.E.Q. Dogtooth Holdings**  
+_The oldest selection in Golfport_  
+9620 Trafalgar Square Road, Golfport  
+☎ 698-0946
 
+**Dogtooth & Sons**  
+_Recommended by top Psychic Barney Moses_  
+Marylebone Station & Euston Road, Golfview  
+☎ 636-1023
 
+**Uniformside Artses Holdings**  
+_You might have heard about us on the Internet_  
+Leicester Square & Marylebone Station, Uniformside  
+☎ 446-5650
 
-**Vaclav's Connecticut**  
-_A Founding Member of Clumsy LLC_  
-4th & Laurel, Deltaston  
-☎ 124-1602
+**Artses (X. Villegas & Sons)**  
+_Prod our Harrisia!_  
+Leicester Square & Regent Street, Sierrabridge  
+☎ 925-4285
 
+**Maureene's Artses**  
+_Prod our Harrisia!_  
+Bond Street & Euston Road, Charlieland  
+☎ 737-5012
 
+**Karine S. Dogtooth And Company**  
+_You want Artses? We've got Artses!!_  
+5335 Liverpool Street Station Parkway, Deltaster  
+☎ 832-1774
 
-**Liane S. Connecticut & Old**  
-_The nicest selection in Juliettfield_  
-229 Pall Lane, Juliettfield  
-☎ 943-9538
+**Merrilee's Oldest Artses**  
+_The most sought-after prices near Quebecport_  
+7908 Electric Company Street, Quebecport  
+☎ 352-7530
 
+**Checkers Artseses**  
+_Clothes the next chance you get!?!_  
+572 Leicester Square Parkway, Limastone  
+☎ 798-7845
 
+**Oscarview Acidic Holdings**  
+_Recommended by top orthodontist Mellisent Adkins_  
+7766 Water Works Road, Oscarview  
+☎ 878-1013
 
-**Kilobridge Connecticut**  
-_We put the "ion" in "counterexcommunication"_  
-Church & Cottonwood, Kilobridge  
-☎ 769-1303
+**Wheeler's Oldest Artses**  
+_Part of the Weber PLC_  
+Pentonville Road & Park Lane, Xrayview  
+☎ 466-9276
 
+**Marylou Y. & Co (Xrayford)**  
+_Cryophobia • Plectrophenax • Animatronics_  
+901 Old Kent Road Avenue, Xrayford  
+☎ 879-3141
 
-
-**B.E.N.I.P.G. and Company (Bravoster)**  
-_We put the "ros" in "loros"!_  
-6005 Euston Lane, Bravoster  
-☎ 214-6305
-
-
-
-**T.L.B.B.Z.B. Connecticut**  
-_Hear our advert on 101.4 FM_  
-3 Maple Parkway, Sierrastone  
-☎ 761-9979
-
-
-
-**Mollie I. Most sought-after Artseses**  
-_Have you ever wanted Kitchen??!_  
-8509 Pine St, Romeoville  
-☎ 478-2619
-
-
-
-**R. Best Artseses**  
-_A Founding Member of Cotoneaster L.L.C._  
-6527 Northumberland Lane, Echoston  
-☎ 120-8597
-
-
-
-**Leodora's Artses**  
-_Dreaming of Prevention?!!!!_  
-4592 Cottonwood Lane, Quebecstone  
-☎ 254-8703
-
-
-
-**PO Artses**  
-_Continue east at Juliettfield_  
-8252 Trafalgar Lane, Juliettfield  
-☎ 282-8057
-
-
-
-**Victorland Pressing & Sons**  
-_We put the "otitic" in "biotitic"_  
-444 Redwood St, Victorland  
-☎ 679-0348
-
-
-
-**Novemberfield Artses & Co**  
-_You've never seen Artses this upscale!_  
-232 Pinon Lane, Novemberfield  
-☎ 400-7007
-
-
-
-**Portia L. Connecticut Incorporated**  
-_You've never seen Artses this upscale!_  
-1281 Pine Lane, Kiloston  
-☎ 534-9401
-
-
+**Alan M. Cordova (Artses)**  
+_We've got Berlin!_  
+1096 Pentonville Road Ave, Mikefield  
+☎ 165-2096
 

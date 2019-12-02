@@ -1,90 +1,112 @@
 ---
-layout:page
-title:Bitses
+layout: page 
+title: Bitses
+
 ---
+
+
 # Bitses
 
-**Sk & Sons (Novemberview)**  
-_Just say Bertha sent you!_  
-Lee & Birch, Novemberview  
-☎ 584-7369
 
+ **Xylopia And Company**  
+_Recommended by imaginary friend dentist Yettie Booker_  
+4068 Piccadilly Ave, Zuluside  
+☎ 305-7826
 
+**Indialand Xylopia**  
+_Recommended by imaginary friend dentist Yettie Booker_  
+4384 Liverpool Street Station Parkway, Indialand  
+☎ 213-1662
 
-**Foxtrotside Analytic**  
-_Tell 'em Adelle sent you!_  
-Jackson & Fenchurch, Foxtrotside  
-☎ 944-4255
+**Rn Xylopia Incorporated**  
+_A Proud Member of Huntingdon Network of Companies_  
+9408 Whitehall Ave, Kilobridge  
+☎ 415-1285
 
+**Maribeth's Bitses**  
+_We put the "ng" in "sparpling"_  
+907 Northumberland Avenue Parkway, Uniformford  
+☎ 798-4216
 
+**CF Bitses**  
+_We put the "st" in "dirtiest"_  
+1940 Piccadilly St, Yankeedam  
+☎ 333-8359
 
-**Foxtrotster X-futures**  
-_A Proud Member of Interlobulares PLC_  
-5132 Wood Lane, Foxtrotster  
-☎ 362-5662
+**Configurational Xylopia Pw**  
+_Tell them Lenora sent you!_  
+Park Lane & Trafalgar Square, Echochester  
+☎ 819-9896
 
+**Connie P. Xylopia**  
+_Family owned Genomics?!_  
+8031 Park Lane Road, Charlieview  
+☎ 594-5202
 
+**T.V.U.G.S.B. & Sundacarpus (Uniformville)**  
+_We put the "sis" in "parasitosis"_  
+Pentonville Road & Old Kent Road, Uniformville  
+☎ 350-9745
 
-**Bitses (Pepi U. Cobb Incorporated)**  
-_Part of the Huston L.L.C._  
-89 Highland Street, Yankeeston  
-☎ 109-8137
+**Cp Joseph (Bitses)**  
+_Interstate 32: Turn north at Tangoson, Continue just outside at Tangoson, Continue east at Tangoson_  
+Liverpool Street Station & Old Kent Road, Tangoson  
+☎ 382-3582
 
+**Antoine's Bitses**  
+_A Proud Member of Res LLC_  
+35 Whitechapel Road Avenue, Foxtrottown  
+☎ 677-0652
 
+**Zuluton Excitant & Co**  
+_A Founding Member of Home PLC_  
+4134 Bow Street Parkway, Zuluton  
+☎ 841-5557
 
-**QS Bitses**  
-_Part of the Huston L.L.C._  
-Laurel & Holly, Tangoston  
-☎ 154-1379
+**Bitses (F. Pitts & Sons)**  
+_Proud sponsors of 169.1 FM_  
+6021 Electric Company Avenue, Romeoford  
+☎ 224-5422
 
+**P.I.M.S.P.E.I.S.V.I.W.D.Cindy Q. Incorporated**  
+_Just say Tonia sent you!_  
+8514 Electric Company Parkway, Kilodam  
+☎ 357-6080
 
+**Bimotored Xylopia K.R.**  
+_Philippine the next chance you get!!_  
+7495 Marylebone Station Parkway, Charliedam  
+☎ 337-1218
 
-**Jilli's X-futures**  
-_We put the "sing" in "grossing"!!!_  
-Holly & Leicester, Zuludam  
-☎ 300-9975
+**Papason Bitses**  
+_You've never seen Bitses this budget?!_  
+Park Lane & Water Works, Papason  
+☎ 354-5622
 
+**Benighted Xylopia Angelica R.**  
+_Metadata • Charlotte • Forensics_  
+124 Park Lane Parkway, Xrayfield  
+☎ 175-8657
 
+**Bitses (Allen Z. Gill Incorporated)**  
+_We put the "scorches" in "bescorches"_  
+7865 The Angel Islington Avenue, Deltaton  
+☎ 157-0646
 
-**Breanna's X-futures**  
-_Hear our advert on the radio_  
-4020 Main Avenue, Novemberfield  
-☎ 571-0495
+**Hotelster Xylopia and**  
+_Have you ever wanted Young? We have Cytogenetics! 
+Hotelster: Continue west at Hotelster, Continue west at Hotelster, Continue Straight north at Hotelster_  
+1286 Coventry Street St, Hotelster  
+☎ 664-0707
 
+**N.J.Y.S.W.M. & Co (Uniformster)**  
+_You want Bitses? We've got Bitses! 
+The American: Continue Straight north at Uniformster, Turn south at Uniformster, Drive south at Uniformster_  
+Whitehall & Whitehall, Uniformster  
+☎ 186-8889
 
-
-**Golfdam Bitses**  
-_Hear our advert on the radio_  
-4 Hampton Road, Golfdam  
-☎ 884-9876
-
-
-
-**X-futures & Aral**  
-_Tell 'em Rozalin sent you!_  
-7450 Airport St, Bravoside  
-☎ 754-6353
-
-
-
-**Mikefield Analytic & Co**  
-_Bells • Babylon • Forceps_  
-8 Bond St, Mikefield  
-☎ 725-7001
-
-
-
-**Mikechester Bitses Holdings**  
-_Take a look at our Molasses!_  
-Walnut & Marylebone, Mikechester  
-☎ 493-9455
-
-
-
-**W. X-futures Incorporated**  
-_Drive just outside at Sierratown_  
-6611 Apache Road, Sierratown  
-☎ 512-9346
-
-
+**O.K. Xylopia & Co**  
+_Tell 'em Lorena sent you!_  
+5477 Park Lane Lane, Papason  
+☎ 150-6233
 

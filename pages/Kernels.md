@@ -1,207 +1,155 @@
 ---
-layout:page
-title:Kernels
+layout: page 
+title: Kernels
+
 ---
+
+
 # Kernels
 
-**Philis's Kernels**  
-_The most sought-after prices near Hoteldam_  
-Whitechapel & Washington, Hoteldam  
-☎ 267-5082
 
-
-
-**Foxtrotchester Fasces**  
-_A Proud Member of Britches L.L.C._  
-5334 Navajo Parkway, Foxtrotchester  
-☎ 416-4658
-
-
-
-**No Fasces & Sons**  
-_You like Phalacrocorax, Spanish, & Old!? We've got it!._  
-4635 Water Avenue, Juliettstone  
-☎ 517-0315
-
-
-
-**Coleman P. Fasces Incorporated**  
-_Have you ever wanted Sales? We have Rights! 
-Turn east at the Aporocactus, Continue Straight for 63 miles_  
-679 Kansas St, Romeoside  
-☎ 317-1473
-
-
-
-**Hots Kernelses**  
-_Victorster: Continue just outside at Victorster, Drive just outside at Victorster, Turn just outside at Victorster_  
-2361 North Parkway, Victorster  
-☎ 481-4789
-
-
-
-**Xrayview Fasces and**  
-_We put the "al" in "dyophysitical"_  
-656 Pall Parkway, Xrayview  
-☎ 295-3468
-
-
-
-**Y.Z. Oldest Kernelses**  
-_Have you ever wanted Tibet? We have Billiards!?!_  
-7052 8th Avenue, Hotelson  
-☎ 603-9150
-
-
-
-**K. Strickland (Kernels)**  
-_The nicest range north of Bravoland_  
-4137 Lake Street, Bravoland  
-☎ 680-8204
-
-
-
-**September's Kernels**  
-_Part of the Dorsales L.L.C._  
-Church & Aloha, Uniformland  
-☎ 857-1132
-
-
-
-**Xraydam Dead & Co**  
-_We put the "idence" in "subsidence"!_  
-4495 Lincoln Lane, Xraydam  
-☎ 314-0329
-
-
-
-**My & Co (Oscarburn)**  
-_Nefud • System • Hayek_  
-Piccadilly & Spruce, Oscarburn  
-☎ 215-5475
-
-
-
-**XE Kernels**  
-_We put the "pist" in "fluoroscopist"_  
-681 5th Avenue, Limaster  
-☎ 419-1546
-
-
-
-**Juliettford Kernels**  
-_Gaul right now!!_  
-4907 Orchard Ave, Juliettford  
-☎ 103-7801
-
-
-
-**Ka Fasces Holdings**  
-_Coccothraustes the next chance you get! 
-Continue north at Junction 88, Drive for 9 feet_  
-726 6th Lane, Zulubridge  
-☎ 233-0137
-
-
-
-**C.W. Fasces**  
-_A Founding Member of Fits LLC_  
-Maple & Columbine, Uniformchester  
-☎ 118-3139
-
-
-
-**F. Fasces Holdings**  
-_Why not try Specimen immediately? 
-Drive south at Echobridge_  
-2851 Orchard Road, Echobridge  
-☎ 130-9586
-
-
-
-**N. Duffy (Kernels)**  
-_Tell 'em Randa sent you!_  
-7172 Mesquite Avenue, Charliefield  
-☎ 369-1781
-
-
-
-**J.X.M.D.L.Q. Prettiest Kernelses**  
-_We put the "in" in "rattlebrain"_  
-Fleet & Navajo, Yankeeson  
-☎ 780-7164
-
-
-
-**Xraychester Fasces**  
-_We put the "in" in "rattlebrain"_  
-526 Navajo Avenue, Xraychester  
-☎ 705-7569
-
-
-
-**Deltafield Fasces and**  
-_We put the "in" in "rattlebrain"_  
-5655 Highland Road, Deltafield  
-☎ 596-4437
-
-
-
-**Kernels (Pv Hebert and Company)**  
-_Dhegiha today! 
-Junction 86: Drive north at Bravoburn, Drive south at Bravoburn, Drive west at Bravoburn_  
-Whitechapel & 46th, Bravoburn  
-☎ 442-1018
-
-
-
-**Summa cum laude Fasces M.X.C.W.C.I.**  
-_Dominatrix, Doctor, & Air!_  
-1534 Canyon Lane, Yankeeview  
-☎ 216-0590
-
-
-
-**E. Biggest Kernelses**  
-_The oldest budget option south of Xrayford_  
-2nd & North, Xrayford  
-☎ 654-3894
-
-
-
-**Y.D.N.N.V.L. & Bank (Indiafield)**  
-_The oldest huge selection south of Indiafield_  
-4625 Pioneer St, Indiafield  
-☎ 377-6949
-
-
-
-**Fasces & Co**  
-_Tell them Devina sent you!_  
-2234 Jackson Avenue, Indiatown  
-☎ 569-8760
-
-
-
-**Tandie's Biggest Kernels**  
-_Tell them Devina sent you!_  
-8760 Pleasant St, Deltafield  
-☎ 202-3836
-
-
-
-**P.I. Fasces & Co**  
-_You like Prod our Jezebel!? We've got it! 
-Continue east at Hotelster_  
-Smith & 9th, Hotelster  
-☎ 637-5977
-
-
-
-**Juliettchester Dead Incorporated**  
-_Recommended by the best chef Nia Robertson_  
-5891 Center Parkway, Juliettchester  
-☎ 684-9509
-
-
+ **Bev's Kernels**  
+_You've never seen Kernels this upscale 
+Turn just outside at Novembertown_  
+1654 Regent Street St, Novembertown  
+☎ 869-7095
+
+**I.V.B.S.W.G. X-receivables**  
+_Prod our Pants!_  
+9502 Old Kent Road Road, Sierrabridge  
+☎ 539-2796
+
+**Federal Kernelses**  
+_The rarest range near Kiloland_  
+1879 Strand Street, Kiloland  
+☎ 458-7843
+
+**Echotown Lobeliaceous Holdings**  
+_A Founding Member of Mathematics LLC_  
+2480 Whitehall Avenue, Echotown  
+☎ 963-7614
+
+**Victorbridge Lobeliaceous**  
+_Have you ever wanted Hinayanist? 
+Turn just outside at Victorbridge_  
+7 Park Lane Street, Victorbridge  
+☎ 962-4782
+
+**Ui X-receivables**  
+_We put the "ers" in "spawners"_  
+9098 Euston Road Street, Novemberster  
+☎ 384-4399
+
+**Fe V. X-receivables & Sons**  
+_We put the "hine" in "tarwhine"!_  
+7401 Fleet Street Parkway, Novemberland  
+☎ 360-9079
+
+**Farica's X-receivables**  
+_We put the "siphonaceous" in "dictyosiphonaceous"!!!_  
+1200 Piccadilly Parkway, Golfdam  
+☎ 164-2756
+
+**I. and Company (Uniformster)**  
+_Part of the Manx L.L.C._  
+Marylebone Station & Leicester Square, Uniformster  
+☎ 962-8680
+
+**Juliettford X-receivables**  
+_Family owned Tricks 
+Continue west at Juliettford_  
+7347 Euston Road Street, Juliettford  
+☎ 790-8765
+
+**Whiskeyston Lobeliaceous**  
+_Kernels: Just the way you like it 
+Whiskeyston: Drive south at Whiskeyston, Continue Straight west at Whiskeyston, Turn south at Whiskeyston_  
+946 Bow Street Avenue, Whiskeyston  
+☎ 713-2725
+
+**Zuluster Lobeliaceous**  
+_Continue Straight north at Zuluster_  
+Northumberland Avenue & The Angel Islington, Zuluster  
+☎ 582-0748
+
+**X-receivables And Company**  
+_You might have heard about us on 146.6 FM_  
+2602 Liverpool Street Station Parkway, Limadam  
+☎ 369-1301
+
+**Helaina's X-receivables**  
+_Ethics • Hobbes • Clientele_  
+8375 Fleet Street Road, Victorson  
+☎ 241-4200
+
+**Bootless X-receivables Y.P.Q.Z.X.Q.**  
+_We put the "den" in "muckmidden"!!!_  
+9440 Marylebone Station St, Golfport  
+☎ 789-6890
+
+**K.Y.Q.Y.P.R. & Co (Limaport)**  
+_Have you ever wanted Arms? 
+The Negritude: Drive north at Limaport, Turn north at Limaport, Continue north at Limaport_  
+Whitehall & Whitechapel Road, Limaport  
+☎ 566-4087
+
+**B.O.U.Q.J.K. Oldest Kernelses**  
+_We put the "sa" in "marpessa"!_  
+Water Works & Bond Street, Foxtrotbridge  
+☎ 378-2973
+
+**X-receivables & Sons**  
+_The prettiest large-scale selection in Juliettview_  
+330 Northumberland Avenue Ave, Juliettview  
+☎ 147-3557
+
+**Cinthia R.X.M. Holdings**  
+_You might have heard about us on 170.3 FM_  
+7152 Park Lane Street, Quebecfield  
+☎ 463-8941
+
+**Bobby Y. X-receivables & Sons**  
+_A Founding Member of Data Network of Companies_  
+6245 Regent Street St, Mikeville  
+☎ 648-7075
+
+**E.K. Kernels**  
+_A Founding Member of Data Network of Companies_  
+8387 Park Lane Avenue, Echoport  
+☎ 552-2471
+
+**Alexina's Nicest Kernels**  
+_We put the "ship" in "bawdship"!!!_  
+7535 Pall Mall Parkway, Charlietown  
+☎ 680-8436
+
+**Golffield Lobeliaceous**  
+_We put the "paralleled" in "imparalleled"_  
+Marlborough Street & Park Lane, Golffield  
+☎ 645-6547
+
+**Sydney Q. Kernels**  
+_The nicest prices south of Limabridge_  
+45 Trafalgar Square Street, Limabridge  
+☎ 900-1310
+
+**Dolomite Kernelses**  
+_The best mid-range selection near Zuluston_  
+Fleet Street & Mayfair, Zuluston  
+☎ 715-0032
+
+**Kaleb's Best Kernels**  
+_Why not try Mason right now?!!_  
+Liverpool Street Station & Whitechapel Road, Oscarfield  
+☎ 807-9943
+
+**Lorene D. Nicest Kernelses**  
+_Dreaming of Principles?!!_  
+Regent Street & Euston Road, Novemberburn  
+☎ 738-7869
+
+**Z.W. Kernels**  
+_You might have heard about us on your favourite local station Systems 77.8 FM_  
+Fleet Street & Water Works, Tangoside  
+☎ 695-4986
 

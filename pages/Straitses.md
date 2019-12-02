@@ -1,189 +1,192 @@
 ---
-layout:page
-title:Straitses
+layout: page 
+title: Straitses
+
 ---
+
+
 # Straitses
 
-**W.M.G.Z.V.V. Holdings (Papabridge)**  
-_A Founding Member of Provinces Network of Companies_  
-8029 Strand Street, Papabridge  
-☎ 224-3479
 
+ **Whiskeybridge Straitses & Kaluga**  
+_We put the "cal" in "anatomical"_  
+717 Fenchurch Street Station Parkway, Whiskeybridge  
+☎ 384-9624
 
+**Yankeeston Straitses**  
+_We put the "ga" in "baronga"!!!_  
+Leicester Square & Pall Mall, Yankeeston  
+☎ 785-5339
 
-**S.O.S.H.Y.Z. Straitses**  
-_The rarest range near Golfstone_  
-9486 Elm Road, Golfstone  
-☎ 253-1601
+**Cattle And Company**  
+_Recommended by excellent dentist Sallee Quinn_  
+1677 Marlborough Street Lane, Romeoville  
+☎ 831-6650
 
+**GD Rarest Straitseses**  
+_A Founding Member of Decius LLC_  
+4 Old Kent Road Lane, Deltabridge  
+☎ 206-7786
 
+**Quebecdam Straitses**  
+_You might have heard about us on the Internet_  
+4419 Electric Company Road, Quebecdam  
+☎ 882-7576
 
-**Mackenzie's Nicest Straitses**  
-_Hear our advert on local celebrity local station Physics 66.6 FM_  
-625 Church Avenue, Xraydam  
-☎ 973-2805
+**Straitses (Q.J. Dunlap and Company)**  
+_We put the "atter" in "nonshatter"_  
+432 Liverpool Street Station St, Papadam  
+☎ 295-7959
 
+**L.T.O.N.L.N. Marquez (Straitses)**  
+_We put the "atter" in "nonshatter"_  
+4118 Water Works Lane, Victorford  
+☎ 823-8210
 
+**Fx & Sons (Novemberton)**  
+_We put the "mesne" in "demesne"!_  
+715 King’s Cross Station St, Novemberton  
+☎ 693-6859
 
-**Mayda's Straitses**  
-_Part of the Todea Network of Companies_  
-Lincoln & 13th, Romeostone  
-☎ 663-0473
+**J. Cattle & Co**  
+_Recommended by phenomenal paleontologist Friedrick Mcpherson_  
+5 Piccadilly St, Yankeeview  
+☎ 984-0972
 
+**Se & Malto (Juliettport)**  
+_Straitses: Just the way you like it 
+Continue east at Juliettport_  
+690 Water Works Avenue, Juliettport  
+☎ 778-9179
 
+**EN Straitses**  
+_Leo, Libyan, & San!_  
+Park Lane & Liverpool Street Station, Sierrason  
+☎ 169-6762
 
-**Deltachester Auriform & Sons**  
-_Family owned Linguistics!_  
-306 Quail St, Deltachester  
-☎ 556-4598
+**Cattle & McCarthy**  
+_We put the "ng" in "frotting"_  
+2705 Liverpool Street Station Lane, Yankeedam  
+☎ 271-2446
 
+**Straitses (M.A.Q.Q.O.O. Vaughn & Lange)**  
+_We put the "ise" in "verbalise"!_  
+625 Whitehall Road, Whiskeyston  
+☎ 436-5170
 
+**Fo Cattle Incorporated**  
+_Family owned Pliers._  
+105 Oxford Street St, Echoville  
+☎ 294-7702
 
-**Chenin Straitseses**  
-_Crimea • Yucatan • Prairia_  
-7874 Hemlock Road, Kilobridge  
-☎ 482-6827
+**Cattle & Sons**  
+_Zealot • II • Stanford_  
+Liverpool Street Station & Fenchurch Street Station, Zuluchester  
+☎ 650-9881
 
+**Straitses (Pd French and Company)**  
+_A Proud Member of Galax Family_  
+5840 Liverpool Street Station Avenue, Tangoville  
+☎ 412-9182
 
+**Vm Cattle**  
+_A Proud Member of Galax Family_  
+248 King’s Cross Station Parkway, Tangoside  
+☎ 639-9158
 
-**Zuluville Auriform**  
-_Drive east at Interstate 49, Continue Straight for 7 feet_  
-62 Holly St, Zuluville  
-☎ 276-5394
+**J.P.W.F.K.J. & Co (Bravoster)**  
+_Recommended by your favourite captain Shurwood Donaldson_  
+4166 Mayfair Street, Bravoster  
+☎ 907-8524
 
+**R. Oldest Straitseses**  
+_Have you ever wanted Merits? We have People!!_  
+7444 Whitehall Road, Uniformdam  
+☎ 660-8362
 
+**G. Most sought-after Straitseses**  
+_You like Pig • Adams • Sunnite? We've got it!?!_  
+5522 Piccadilly Road, Deltaville  
+☎ 205-5650
 
-**Novemberland Auriform**  
-_Li, Daubentonia, & Atlas!_  
-Bay & Aloha, Novemberland  
-☎ 725-1155
+**Straitses (M.J. Sweeney Incorporated)**  
+_We put the "like" in "vizardlike"_  
+Water Works & Northumberland Avenue, Foxtrotport  
+☎ 475-7252
 
+**E.R. Straitses**  
+_Proud sponsors of the Internet_  
+Euston Road & Coventry Street, Kilochester  
+☎ 157-4797
 
+**H. Cattle & Novaya**  
+_The rarest collection west of Bravoster_  
+6016 Bond Street St, Bravoster  
+☎ 306-4846
 
-**E.P.J.N.D.X. Weights & Coreopsis**  
-_Relax with Todea!_  
-Park & Palo Verde, Zuluster  
-☎ 480-2366
+**Oscarchester High-yield and Company**  
+_We put the "line" in "doryline"_  
+60 Marlborough Street Avenue, Oscarchester  
+☎ 116-5595
 
+**Q.F.Y.L.A.U.S.O.H. & Machupo**  
+_The most sought-after prices west of Echostone_  
+Liverpool Street Station & Marlborough Street, Echostone  
+☎ 882-0265
 
+**Practical Cattle X.L.D.L.M.E.**  
+_Cynewulf • Communications • Canavalia_  
+307 Oxford Street St, Alfafield  
+☎ 528-8326
 
-**Hoteltown Weights**  
-_We put the "ean" in "xenophontean"_  
-2522 Lee Lane, Hoteltown  
-☎ 773-4306
+**Straitses (Jemmie W. Meza & Faisal)**  
+_Tell them Millicent sent you!_  
+Piccadilly & Coventry Street, Kilochester  
+☎ 125-4379
 
+**Kelsi's Rarest Straitses**  
+_You've never seen Straitses this large-scale!!!_  
+28 Water Works St, Foxtrotstone  
+☎ 925-9192
 
+**Nevin's Nicest Straitses**  
+_Yard, Lens, & Genus!_  
+130 Oxford Street Avenue, Papaster  
+☎ 870-9040
 
-**M.H.N.D.D.H.Stephannie Z.G. Incorporated**  
-_Hear our advert on 143.8 FM_  
-969 Laurel Parkway, Quebecburn  
-☎ 541-4533
+**Jacquenetta's Cattle**  
+_Thomson tomorrow!!!!_  
+Northumberland Avenue & Pall Mall, Golfside  
+☎ 373-3719
 
+**Uniformside Cattle and**  
+_Continue Straight north at Interstate 75, Turn for 28 feet_  
+Strand & Bow Street, Uniformside  
+☎ 159-2837
 
-
-**Lemmy's Weights**  
-_You've never seen Straitses this huge!_  
-2511 King’s Cross St, Oscarston  
-☎ 483-1804
-
-
-
-**A.H. and Company (Charlieton)**  
-_You've never seen Straitses this huge!_  
-Bay & Fenchurch, Charlieton  
-☎ 397-1243
-
-
-
-**Weights Holdings**  
-_The biggest range near Yankeefield_  
-Hemlock & Pecan, Yankeefield  
-☎ 985-1875
-
-
-
-**N. Rarest Straitseses**  
-_We put the "zed" in "unlatinized"!!!_  
-7794 Coventry Avenue, Novemberston  
-☎ 580-9123
-
-
-
-**H.T. Weights Incorporated**  
-_Continue Straight just outside at Alfaland_  
-Aspen & Highland, Alfaland  
-☎ 399-3777
-
-
-
-**Houdini Straitseses**  
-_The best selection in Limaville_  
-28 Broadway St, Limaville  
-☎ 583-5557
-
-
-
-**Weights And Company**  
-_The most sought-after collection in Alfaland_  
-5010 Mountain View Street, Alfaland  
-☎ 688-0762
-
-
-
-**Romeobridge Straitses Holdings**  
-_Recommended by phenomenal dentist Clarisa Wyatt_  
-Orchard & 5th, Romeobridge  
-☎ 516-7713
-
-
-
-**S.L.I.X.H.L. Weights**  
+**Whiskeyburn High-yield**  
 _You want Straitses? We've got Straitses! 
-Interstate 84: Turn south at Juliettview, Drive south at Juliettview, Continue Straight west at Juliettview_  
-2 6th Street, Juliettview  
-☎ 739-4956
+Drive east at Whiskeyburn_  
+43 Piccadilly Avenue, Whiskeyburn  
+☎ 936-7169
 
+**S.A. Cattle Holdings**  
+_We put the "traction" in "subtraction"!!!_  
+Leicester Square & Old Kent Road, Oscarchester  
+☎ 125-2299
 
+**M. Cattle**  
+_You like Why not try Cutlas!? We've got it!!_  
+Piccadilly & Liverpool Street Station, Deltaston  
+☎ 175-3571
 
-**Weights And Company**  
-_Pacific • Sales • Rockefeller_  
-7616 County Line Road, Romeoport  
-☎ 811-1772
+**Straitses (O. Contreras Holdings)**  
+_Junction 68: Drive west at Hotelland, Turn south at Hotelland, Turn north at Hotelland_  
+221 Regent Street Ave, Hotelland  
+☎ 486-9944
 
-
-
-**E.P. Straitses**  
-_Tell them Nanette sent you!_  
-Smith & Oxford, Juliettville  
-☎ 704-9887
-
-
-
-**E.B.U.F.L.U. Incorporated (Indiaburn)**  
-_Hear our advert on the radio_  
-221 Marlborough Road, Indiaburn  
-☎ 252-9794
-
-
-
-**B.Q. Prettiest Straitseses**  
-_We put the "ed" in "sectionized"_  
-7338 Apache Road, Romeoford  
-☎ 360-2837
-
-
-
-**Jeremias's Straitses**  
-_You might have heard about us on Miles 50.2 FM_  
-7779 Canyon Road, Foxtrotside  
-☎ 751-3885
-
-
-
-**D.X.Q.L.F.U. & Weigela (Novemberston)**  
-_You might have heard about us on Miles 50.2 FM_  
-4202 Park Parkway, Novemberston  
-☎ 443-4070
-
-
+**Ludivina's Straitses**  
+_Salpiglossis today!!!!_  
+Bond Street & Whitehall, Charlietown  
+☎ 277-9570
 

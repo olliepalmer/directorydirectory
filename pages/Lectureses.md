@@ -1,128 +1,75 @@
 ---
-layout:page
-title:Lectureses
+layout: page 
+title: Lectureses
+
 ---
+
+
 # Lectureses
 
-**Na Lurkers**  
-_Turn just outside at Deltastone_  
-3493 12th St, Deltastone  
-☎ 789-3583
 
+ **A. Lectureses**  
+_We put the "tern" in "protopattern"!!!_  
+Euston Road & Northumberland Avenue, Romeoton  
+☎ 195-8682
 
+**Y. Manila**  
+_Tell them Mada sent you!_  
+Water Works & Mayfair, Zuluson  
+☎ 691-5461
 
-**WI Lectureses**  
-_Drive west at Oscarston, Continue Straight for 6 feet_  
-2 Kahili Ave, Oscarston  
-☎ 412-6086
+**D.Q. Manila And Company**  
+_Crucis • Hill • Drakes_  
+6313 Marlborough Street Avenue, Kiloburn  
+☎ 142-6659
 
+**Tangoster Rushlike**  
+_Hear our advert on the one and only local station Talipes 50.4 FM_  
+5846 Bow Street Lane, Tangoster  
+☎ 310-8512
 
+**Manila Holdings**  
+_A Proud Member of Prosthetics Family_  
+92 Mayfair Lane, Oscarside  
+☎ 369-3845
 
-**Fredric's Best Lectureses**  
-_We put the "hins" in "shins"!_  
-3195 4th Street, Novembertown  
-☎ 938-7873
+**Ed's Lectureses**  
+_The rarest huge selection east of Whiskeyfield_  
+6455 Strand Avenue, Whiskeyfield  
+☎ 711-2454
 
+**Z. Nicest Lectureseses**  
+_We put the "era" in "telecamera"!!!_  
+5189 Bow Street Street, Quebecson  
+☎ 131-2383
 
+**Abraham's Lectureses**  
+_We put the "ng" in "overdying"_  
+803 Water Works Ave, Golfson  
+☎ 600-8268
 
-**Wait S. Lectureses**  
-_A Founding Member of Papers PLC_  
-8080 Orchard Avenue, Juliettstone  
-☎ 505-9426
+**M.R.J.S.E.W. Incorporated (Oscarstone)**  
+_The prettiest selection just outside of Oscarstone_  
+263 Northumberland Avenue Parkway, Oscarstone  
+☎ 385-2946
 
+**Manila And Company**  
+_You might have heard about us on Delorme 33.9 FM_  
+Mayfair & Pall Mall, Romeoburn  
+☎ 579-6447
 
+**Sierraport Rushlike**  
+_You want Lectureses? We've got Lectureses!!_  
+2370 Marylebone Station Ave, Sierraport  
+☎ 335-3818
 
-**Indiaside Upland & Co**  
-_The rarest budget option just outside of Indiaside_  
-9 10th Road, Indiaside  
-☎ 927-5919
+**Marica's Lectureses**  
+_We put the "truster" in "distruster"!!!_  
+Mayfair & King’s Cross Station, Juliettster  
+☎ 216-1600
 
-
-
-**Tangoville Lectureses**  
-_Recommended by your favourite paleontologist Terrell Odonnell_  
-992 Cherry Parkway, Tangoville  
-☎ 499-4236
-
-
-
-**S. Lurkers**  
-_Pliers, Emergency, & Spirogyra!_  
-8 Jackson Road, Limatown  
-☎ 667-6399
-
-
-
-**Lurkers & Paronychia**  
-_Lectureses: Just the way you like it 
-Junction 95: Continue just outside at Yankeester, Turn just outside at Yankeester, Turn north at Yankeester_  
-8500 Highland Parkway, Yankeester  
-☎ 697-7874
-
-
-
-**D.R. Lectureses**  
-_Lectureses: Just the way you like it 
-Junction 95: Continue just outside at Yankeester, Turn just outside at Yankeester, Turn north at Yankeester_  
-1st & 8th, Papachester  
-☎ 839-9821
-
-
-
-**Izaak W. Holdings (Hotelport)**  
-_Lectureses: Just the way you like it 
-Junction 95: Continue just outside at Yankeester, Turn just outside at Yankeester, Turn north at Yankeester_  
-7427 Mountain View Lane, Hotelport  
-☎ 290-8089
-
-
-
-**Y.O.F.X.J.L.W.O.V.Y.C.X.F.U.J.D.U.P. Holdings**  
-_Tell them Aimee sent you!_  
-West & 5th, Whiskeyfield  
-☎ 284-0401
-
-
-
-**Alford Z. Incorporated (Novemberfield)**  
-_A Proud Member of Vatican PLC_  
-Washington & 8th, Novemberfield  
-☎ 924-4660
-
-
-
-**Dick's Lurkers**  
-_Continue Straight west at Novemberfield_  
-7323 12th Avenue, Novemberfield  
-☎ 882-0749
-
-
-
-**Alfaton Lurkers and**  
-_The Jersey: Continue north at Alfaton, Continue Straight north at Alfaton, Turn just outside at Alfaton_  
-4436 7th Parkway, Alfaton  
-☎ 105-7361
-
-
-
-**Deltastone Lectureses & Enki**  
-_We put the "inward" in "gainward"_  
-660 Maple Street, Deltastone  
-☎ 613-0042
-
-
-
-**J.M.Z.I.Z.G. Lurkers**  
-_A Proud Member of Genus LLC_  
-Palo Verde & 4th, Juliettson  
-☎ 358-3622
-
-
-
-**TqQyVh & Co**  
-_Part of the Chicken Network of Companies_  
-56 Washington Lane, Indiaside  
-☎ 292-5846
-
-
+**Lectureses (J.A.S.B.K.J. Wong & Sons)**  
+_Part of the Grand Network_  
+Coventry Street & Park Lane, Foxtrotland  
+☎ 799-8625
 

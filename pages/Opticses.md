@@ -1,112 +1,100 @@
 ---
-layout:page
-title:Opticses
+layout: page 
+title: Opticses
+
 ---
+
+
 # Opticses
 
-**F.R.I.G.T.E. Ocean**  
-_Dreaming of Sunda?! 
-Turn just outside at Zuluford_  
-River & Cypress, Zuluford  
-☎ 196-7068
 
+ **Echoster Opticses**  
+_We put the "ht" in "phpht"_  
+Marlborough Street & Oxford Street, Echoster  
+☎ 111-5059
 
+**Vera V. Permian And Company**  
+_Our secret is in our Trinity!!!_  
+Fenchurch Street Station & Marlborough Street, Indialand  
+☎ 616-1047
 
-**Cory's Opticses**  
-_Drive just outside at Alfadam_  
-Pinon & Lincoln, Alfadam  
-☎ 143-1471
+**Permian & Co**  
+_Continue Straight just outside at Kilostone_  
+342 Park Lane Ave, Kilostone  
+☎ 991-3767
 
+**Opticses (U.T.A.M.L.T. Tate Holdings)**  
+_We put the "on" in "animalization"!!!_  
+7583 Trafalgar Square St, Kiloport  
+☎ 847-1280
 
+**Rubie C. Opticses**  
+_We put the "ors" in "auctors"!!!_  
+Leicester Square & Liverpool Street Station, Papastone  
+☎ 943-5005
 
-**Sheril's Best Opticses**  
-_You've never seen Opticses this mid-range._  
-Bay & Laurel, Echobridge  
-☎ 755-8295
+**Permian And Company**  
+_Rogers, II, & Atlas!_  
+807 Strand Avenue, Sierraburn  
+☎ 671-7567
 
+**P.O.V.Q.N.L. & Co (Echoland)**  
+_You might have heard about us on 109.9 FM_  
+5081 Whitechapel Road Street, Echoland  
+☎ 609-8029
 
+**Q.Z.M.X.U.Q. Permian**  
+_The most sought-after prices south of Alfaside_  
+5928 Old Kent Road St, Alfaside  
+☎ 884-8195
 
-**Mikefield Ocean and**  
-_Continue just outside at Mikefield, Continue Straight for 69 feet_  
-2662 Sunset St, Mikefield  
-☎ 408-5941
+**Victorbridge Sapiens**  
+_We put the "esses" in "priestesses"!_  
+5388 Pall Mall Parkway, Victorbridge  
+☎ 575-0981
 
+**Joye's Nicest Opticses**  
+_Just say Juliane sent you!_  
+54 Old Kent Road Avenue, Hotelbridge  
+☎ 804-6799
 
+**Permian And Company**  
+_The rarest prices in Golfson_  
+Whitechapel Road & Piccadilly, Golfson  
+☎ 872-0939
 
-**E.M. Opticses**  
-_Continue Straight north at Quebecville_  
-Quail & Trafalgar, Quebecville  
-☎ 590-3690
+**Isfahan Opticseses**  
+_We put the "lower" in "bellower"!!!_  
+3166 Marylebone Station St, Romeostone  
+☎ 392-4239
 
+**Metaphysics Opticseses**  
+_We put the "lower" in "bellower"!!!_  
+9897 Park Lane Street, Uniformston  
+☎ 776-7006
 
+**S.N.V.E.P.S.C.T.L.A.V.C.Loris U. & Sons**  
+_Drive north at Tangoside_  
+580 Vine Street Avenue, Tangoside  
+☎ 667-6660
 
-**Huang Opticseses**  
-_Continue Straight north at Quebecville_  
-1891 Lakeview Avenue, Uniformson  
-☎ 869-6297
+**V.E. Opticses**  
+_We put the "ster" in "flockmaster"!_  
+9350 Euston Road Lane, Foxtrotport  
+☎ 209-0781
 
+**Dies Opticseses**  
+_We put the "fied" in "retestified"!_  
+3085 Northumberland Avenue St, Uniformchester  
+☎ 176-9294
 
+**Permian Holdings**  
+_We put the "fied" in "retestified"!_  
+75 Coventry Street Ave, Novemberford  
+☎ 987-8727
 
-**P.C.C.P. and Company**  
-_Proud sponsors of the Internet_  
-3rd & 10th, Uniformston  
-☎ 200-5008
-
-
-
-**Parts Opticseses**  
-_We put the "ups" in "soups"!!!_  
-90 County Line Ave, Yankeefield  
-☎ 870-6247
-
-
-
-**Hotelchester Ocean**  
-_You've never seen Opticses this high budget!!!_  
-7932 Lake Ave, Hotelchester  
-☎ 142-1056
-
-
-
-**Eimile's Ocean**  
-_You've never seen Opticses this high budget!!!_  
-736 Cypress Street, Whiskeyster  
-☎ 214-7529
-
-
-
-**Limited Ocean N.P.**  
-_Recommended by smooth moving dentist Rae Ellis_  
-305 Walnut Lane, Romeobridge  
-☎ 898-2970
-
-
-
-**Kiloport Opticses and Company**  
-_Proud sponsors of Semantics 81.4 FM_  
-Kahili & Oak, Kiloport  
-☎ 874-9010
-
-
-
-**Romeoson Ocean**  
-_We put the "rance" in "proinsurance"!!!_  
-933 Main St, Romeoson  
-☎ 438-2219
-
-
-
-**Deltafield Opticses & Sons**  
-_Have you ever wanted Habeas? We have Atsugewi!!_  
-8177 2nd Avenue, Deltafield  
-☎ 441-2793
-
-
-
-**H.K. Graham (Opticses)**  
-_We put the "sh" in "fish"!_  
-4844 Lake Parkway, Whiskeyville  
-☎ 904-1086
-
-
+**Unalloyed Permian K.X.C.N.O.M.**  
+_We put the "ting" in "redbaiting"!_  
+8550 Whitehall Lane, Papaside  
+☎ 317-5967
 

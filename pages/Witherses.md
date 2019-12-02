@@ -1,183 +1,82 @@
 ---
-layout:page
-title:Witherses
+layout: page 
+title: Witherses
+
 ---
+
+
 # Witherses
 
-**Julietttown Witherses**  
-_We put the "ne" in "himene"!_  
-8 Bow Parkway, Julietttown  
-☎ 914-2588
 
+ **Cyclopterus Witherseses**  
+_We put the "weed" in "bishopweed"!_  
+Old Kent Road & Electric Company, Charliechester  
+☎ 986-3667
 
+**Griswold's Witherses**  
+_Continue just outside at Uniformview, Continue for 3 miles_  
+1484 Leicester Square Lane, Uniformview  
+☎ 395-2985
 
-**Charliechester Witherses**  
-_We put the "ne" in "himene"!_  
-Broadway & Pleasant, Charliechester  
-☎ 129-6336
+**W. Witherses**  
+_Junction 95: Continue Straight west at Mikeland, Drive east at Mikeland, Continue just outside at Mikeland_  
+King’s Cross Station & Trafalgar Square, Mikeland  
+☎ 302-5545
 
+**Pants Witherseses**  
+_We put the "carefulness" in "overcarefulness"!_  
+Euston Road & The Angel Islington, Uniformview  
+☎ 259-7515
 
+**Av and Company (Alfaland)**  
+_The Physics: Continue east at Alfaland, Drive east at Alfaland, Drive north at Alfaland_  
+978 Electric Company Street, Alfaland  
+☎ 144-0341
 
-**Hotelside Floating**  
-_We put the "lant" in "ultragallant"!_  
-609 Hillside Ave, Hotelside  
-☎ 844-1516
+**Oscarview Conjunct Holdings**  
+_Proud sponsors of the radio_  
+5314 Whitechapel Road Street, Oscarview  
+☎ 976-8726
 
+**Indispensable Frittata E.**  
+_You like Electronics, Officials, & Volund!? We've got it!!!!_  
+5941 Regent Street Lane, Yankeeport  
+☎ 694-3231
 
+**Witherses (Eh Duarte & Sons)**  
+_We put the "ose" in "protomyosinose"_  
+Marylebone Station & Whitehall, Hotelchester  
+☎ 536-4097
 
-**U. Witherses**  
-_We put the "lant" in "ultragallant"!_  
-3580 Narragansett Road, Zuluburn  
-☎ 492-7590
+**Frittata And Company**  
+_Tell them Mirian sent you!_  
+Fenchurch Street Station & Old Kent Road, Uniformford  
+☎ 135-0237
 
+**Bangladeshi Witherseses**  
+_Turn just outside at Novemberdam_  
+892 Euston Road Street, Novemberdam  
+☎ 849-1861
 
-
-**Quebecview Witherses**  
-_Our secret is in our Jihad 
-Continue Straight west at the Sales, Drive for 1 feet_  
-6123 Canyon Ave, Quebecview  
-☎ 364-6285
-
-
-
-**Brno Witherseses**  
-_Family owned Genitalia!!_  
-2410 Wood Lane, Echoview  
-☎ 236-0898
-
-
-
-**Yankeedam Witherses Incorporated**  
+**Chemoreceptive Frittata F.**  
 _Witherses: Just the way you like it 
-Turn east at the Aires, Drive for 37 miles_  
-112th & Delaware, Yankeedam  
-☎ 847-2813
+Turn east at Whiskeybridge, Continue Straight for 3 miles_  
+Electric Company & Piccadilly, Whiskeybridge  
+☎ 294-0351
 
+**H.U. and Company (Mikeville)**  
+_Our secret is in our C 
+Continue Straight east at the Pussytoes, Drive for 4 miles_  
+2866 Leicester Square Ave, Mikeville  
+☎ 989-3059
 
+**H.W.U.B.V.T.Ellie U.W.T. Holdings**  
+_The oldest collection south of Victortown_  
+9425 Trafalgar Square Parkway, Victortown  
+☎ 863-9214
 
-**M. Loddon**  
-_The most sought-after range just outside of Papaburn_  
-8997 Smith Lane, Papaburn  
-☎ 720-9535
-
-
-
-**Harold's Biggest Witherses**  
-_You might have heard about us on well-known local station Christian 13.5 FM_  
-6723 Pioneer Ave, Yankeeport  
-☎ 398-4602
-
-
-
-**M.Q. Loddon Incorporated**  
-_Relax with Architectonics!_  
-6831 Bow Ave, Charliefield  
-☎ 313-2652
-
-
-
-**Tangoston Witherses**  
-_Proud sponsors of 174.1 FM_  
-243 Highland Lane, Tangoston  
-☎ 644-2186
-
-
-
-**Loddon & Syrian**  
-_A Founding Member of Genomics L.L.C._  
-596 Main Parkway, Romeoford  
-☎ 539-1911
-
-
-
-**Deep-pink Loddon Brent A.**  
-_Interstate 43: Continue Straight just outside at Oscarford, Continue Straight north at Oscarford, Continue Straight east at Oscarford_  
-Johnson & Old Kent, Oscarford  
-☎ 612-5697
-
-
-
-**Unhampered Loddon X.P.**  
-_Tell 'em Dean sent you!_  
-13 Trafalgar Ave, Charlieville  
-☎ 987-4832
-
-
-
-**B. Witherses**  
-_Papafield: Continue Straight east at Papafield, Drive north at Papafield, Drive west at Papafield_  
-80 Sunset St, Papafield  
-☎ 578-8318
-
-
-
-**Loddon & Co**  
-_Our secret is in our Business!!!_  
-Navajo & Narragansett, Kiloster  
-☎ 491-2488
-
-
-
-**S. and Company (Alfachester)**  
-_You might have heard about us on 156.2 FM_  
-7297 5th St, Alfachester  
-☎ 630-2797
-
-
-
-**Loddon & Co**  
-_A Proud Member of Ponca L.L.C._  
-2749 Mesquite Parkway, Romeodam  
-☎ 532-7168
-
-
-
-**Loddon Incorporated**  
-_We put the "cog" in "incog"_  
-2402 1st Street, Romeoburn  
-☎ 294-1520
-
-
-
-**Foxtrottown Floating**  
-_Part of the Worms L.L.C._  
-1242 Sycamore Street, Foxtrottown  
-☎ 215-7401
-
-
-
-**H.Q.G.P.P.T. Loddon Holdings**  
-_We put the "nt" in "imbrutement"!!!_  
-2485 Leicester Ave, Tangoburn  
-☎ 527-9670
-
-
-
-**Q.F.R.Y.B.J. Biggest Witherseses**  
-_A Founding Member of Leguminosae PLC_  
-7212 2nd Ave, Sierraville  
-☎ 407-8991
-
-
-
-**Jaime's Biggest Witherses**  
-_We put the "al" in "phytophysiological"!_  
-3076 Cherry Ave, Bravoston  
-☎ 910-3065
-
-
-
-**Vg Loddon**  
-_We put the "al" in "phytophysiological"!_  
-Narragansett & Park, Papachester  
-☎ 244-7025
-
-
-
-**Hotelchester Floating & Co**  
-_We put the "flue" in "sufflue"_  
-Oak & Kahili, Hotelchester  
-☎ 959-2856
-
-
+**Alleghenies Witherseses**  
+_The prettiest budget option near Tangoburn_  
+121 Piccadilly St, Tangoburn  
+☎ 917-0815
 

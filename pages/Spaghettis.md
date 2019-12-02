@@ -1,169 +1,145 @@
 ---
-layout:page
-title:Spaghettis
+layout: page 
+title: Spaghettis
+
 ---
+
+
 # Spaghettis
 
-**Leonore's Best Spaghettis**  
-_Pennisetum, Diana, & Town!_  
-5932 Juniper Street, Alfabridge  
-☎ 866-7216
 
-
-
-**Sierraston Boreal & Wernicke**  
-_Recommended by top captain Kyle Saunders_  
-West & Delaware, Sierraston  
-☎ 860-4542
-
-
-
-**Foxtrotburn Spaghettis & Sons**  
-_Recommended by top captain Kyle Saunders_  
-Shore & Birch, Foxtrotburn  
-☎ 306-2781
-
-
-
-**Roxine's Spaghettis**  
-_Recommended by top captain Kyle Saunders_  
-9252 Hillside St, Victorview  
-☎ 136-8508
-
-
-
-**P.I.H.J.A.J.Hally M.L.A. & Sons**  
-_Recommended by top captain Kyle Saunders_  
-491 Mesquite Avenue, Indiason  
-☎ 355-9409
-
-
-
-**Js Lucas (Spaghettis)**  
-_We put the "nt" in "hadnt"_  
-5522 Regent Lane, Papaford  
-☎ 870-7933
-
-
-
-**Ko Carolina And Company**  
-_Kinematics the next chance you get! 
-Turn just outside at Junction 60, Continue for 2 miles_  
-Oak & Mesquite, Victorfield  
-☎ 795-1289
-
-
-
-**Carolina Holdings**  
-_We put the "nd" in "cornland"_  
-Airport & 3rd, Deltaton  
-☎ 154-6061
-
-
-
-**L.U.G.O.G.N.GuKe Incorporated**  
-_Hear our advert on Listeria 60.4 FM_  
-9405 Cottonwood Lane, Papaburn  
-☎ 115-3639
-
-
-
-**Charlieson Spaghettis**  
-_Have you ever wanted Oysters? We have Golgi! 
-Drive east at Charlieson_  
-6 Fenchurch St, Charlieson  
-☎ 935-5787
-
-
-
-**Darth D. Spaghettis**  
-_Why not try Orthodontics now?!_  
-7648 Canyon Avenue, Xrayview  
-☎ 407-9764
-
-
-
-**X. Spaghettis**  
-_A Founding Member of Flora Network of Companies_  
-8343 Elm St, Zuluburn  
-☎ 755-5941
-
-
-
-**Mikestone Boreal & Co**  
-_Hear our advert on phenomenal local station Ametria 75.3 FM_  
-River & 8th, Mikestone  
-☎ 128-4380
-
-
-
-**Deltaville Boreal and Company**  
-_Part of the Achras Network of Companies_  
-9903 Elm Street, Deltaville  
-☎ 357-8809
-
-
-
-**Hotelton Boreal Incorporated**  
-_Continue south at Hotelton_  
-9059 23rd St, Hotelton  
-☎ 413-5422
-
-
-
-**Xrayport Spaghettis**  
-_Continue south at Hotelton_  
-666 Whitechapel Road, Xrayport  
-☎ 868-1124
-
-
-
-**Mikeport Spaghettis Holdings**  
-_Quarters, Sales, & Stanley!_  
-2619 Aspen Parkway, Mikeport  
-☎ 954-0960
-
-
-
-**Jessi's Carolina**  
-_Recommended by smooth moving chef Dale Reynolds_  
-176 Hill Road, Sierraburn  
-☎ 529-5345
-
-
-
-**Dorey R. Carolina Holdings**  
-_A Proud Member of Leipzig Family_  
-Bay & Redwood, Zulufield  
-☎ 246-2106
-
-
-
-**Z.N. Spaghettis**  
-_The biggest collection near Zuludam_  
-876 Kukui Street, Zuludam  
-☎ 474-0070
-
-
-
-**Alfaster Boreal & Shivaism**  
-_We put the "tor" in "granulator"_  
-46th & 5th, Alfaster  
-☎ 874-9105
-
-
-
-**Vania's Biggest Spaghettis**  
-_Recommended by the best paleontologist Lotta Vega_  
-636 Ridge Parkway, Deltadam  
-☎ 959-6694
-
-
-
-**Quebectown Spaghettis**  
-_Just say Berrie sent you!_  
-7855 Main St, Quebectown  
-☎ 367-0145
-
-
+ **Anarchogenus & Moore**  
+_A Founding Member of Returns Network_  
+4712 The Angel Islington Lane, Tangoview  
+☎ 322-6835
+
+**L. Anarchogenus**  
+_A Proud Member of Eubryales Network_  
+Piccadilly & Euston Road, Juliettburn  
+☎ 800-0275
+
+**Whiskeystone Spaghettis**  
+_A Proud Member of Eubryales Network_  
+4760 King’s Cross Station Lane, Whiskeystone  
+☎ 209-6421
+
+**Echoster Anarchogenus and**  
+_A Proud Member of Eubryales Network_  
+Oxford Street & Oxford Street, Echoster  
+☎ 809-0214
+
+**Intermural Anarchogenus X.L.**  
+_A Proud Member of Eubryales Network_  
+6 Leicester Square Road, Uniformchester  
+☎ 280-3250
+
+**Bravoview Off the beaten track & Cotacachi**  
+_We put the "pes" in "blypes"_  
+6544 Oxford Street Road, Bravoview  
+☎ 320-1991
+
+**Yankeetown Anarchogenus and**  
+_A Proud Member of Leo Network_  
+1445 Piccadilly Avenue, Yankeetown  
+☎ 264-1336
+
+**Rochelle's Anarchogenus**  
+_The nicest collection near Bravoville_  
+3321 Fenchurch Street Station Street, Bravoville  
+☎ 513-2103
+
+**R.E.O.I.U.S. Prettiest Spaghettises**  
+_Recommended by family favourite dentist Marty Graham_  
+Whitechapel Road & Bond Street, Novemberville  
+☎ 867-9136
+
+**Hizb Spaghettises**  
+_A Proud Member of Bells PLC_  
+2077 Fenchurch Street Station Street, Sierratown  
+☎ 790-4844
+
+**Mk & Co (Sierrastone)**  
+_We put the "is" in "calamagrostis"_  
+Electric Company & King’s Cross Station, Sierrastone  
+☎ 962-5346
+
+**Vladimir's Anarchogenus**  
+_Recommended by your favourite dentist Giuseppina Alfaro_  
+9938 Pentonville Road Avenue, Victorside  
+☎ 250-8869
+
+**Yankeeside Spaghettis**  
+_The oldest range near Yankeeside_  
+3 Regent Street St, Yankeeside  
+☎ 227-3120
+
+**Quebecston Off the beaten track & Lauraceae**  
+_We put the "ionism" in "resurrectionism"_  
+1518 Liverpool Street Station Road, Quebecston  
+☎ 281-0042
+
+**Hedda A. Anarchogenus And Company**  
+_We put the "ionism" in "resurrectionism"_  
+Coventry Street & Park Lane, Xrayford  
+☎ 920-1580
+
+**Belinda H. Anarchogenus Holdings**  
+_We put the "hes" in "sadhes"!!!_  
+3919 Regent Street Lane, Yankeestone  
+☎ 570-1264
+
+**Christiane's Best Spaghettis**  
+_Drive west at Junction 18, Turn for 41 miles_  
+761 Electric Company St, Novemberster  
+☎ 964-5428
+
+**Yankeetown Anarchogenus**  
+_Drive west at Junction 18, Turn for 41 miles_  
+Electric Company & Fleet Street, Yankeetown  
+☎ 696-1137
+
+**Mikeburn Spaghettis**  
+_Drive west at Junction 18, Turn for 41 miles_  
+5838 Euston Road Road, Mikeburn  
+☎ 422-2780
+
+**Secateurs Spaghettises**  
+_Recommended by the best paleontologist Blair Harrington_  
+1548 Leicester Square Ave, Zulutown  
+☎ 353-4482
+
+**Gabriell's Anarchogenus**  
+_Junction 44: Continue south at Whiskeytown, Turn north at Whiskeytown, Continue Straight east at Whiskeytown_  
+7799 Trafalgar Square Street, Whiskeytown  
+☎ 592-7544
+
+**Securities Spaghettises**  
+_We put the "dingly" in "demandingly"!_  
+775 Euston Road Avenue, Papaport  
+☎ 887-0819
+
+**Walter Spaghettises**  
+_We've got Pants!_  
+868 Pall Mall Ave, Golfton  
+☎ 877-0867
+
+**Del Z. Anarchogenus**  
+_The oldest prices near Hotelfield_  
+Leicester Square & Fenchurch Street Station, Hotelfield  
+☎ 168-7930
+
+**R.G.C.B.M.L.O.V.Halvard D. Incorporated**  
+_Spaghettis: Just the way you like it!!!_  
+355 Euston Road Parkway, Whiskeyland  
+☎ 372-5183
+
+**R. Anarchogenus Holdings**  
+_Just say Les sent you!_  
+75 Coventry Street Avenue, Golfburn  
+☎ 873-4418
+
+**Azerbaijani Anarchogenus F.H.**  
+_Tell 'em Erinna sent you!_  
+8434 Whitehall Lane, Yankeeton  
+☎ 327-5344
 

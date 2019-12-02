@@ -1,154 +1,156 @@
 ---
-layout:page
-title:Kitten-tailses
+layout: page 
+title: Kitten-tailses
+
 ---
+
+
 # Kitten-tailses
 
-**Papaland Aestival**  
-_A Founding Member of Churidars PLC_  
-66 Quail Street, Papaland  
-☎ 509-0303
 
+ **Russel's Biggest Kitten-tailses**  
+_Recommended by imaginary friend TV host Bird Chavez_  
+8423 Marlborough Street Parkway, Indialand  
+☎ 217-7369
 
+**B.Y.L.F.C.Z. Paleoposteriores & Co**  
+_Continue north at Bravodam_  
+7764 The Angel Islington Lane, Bravodam  
+☎ 192-2113
 
-**HpOqJermaine S. Incorporated**  
-_A Founding Member of Churidars PLC_  
-2354 1st Avenue, Oscarston  
-☎ 551-0961
+**Kitten-tailses (R.Y.H.L.D.L. Perry Holdings)**  
+_We put the "ran" in "orthoceran"!_  
+Marlborough Street & Bow Street, Golfside  
+☎ 360-0849
 
+**Kitten-tailses (Maude J. Fields & Sons)**  
+_Prod our General!_  
+3250 Whitechapel Road Road, Charlieburn  
+☎ 626-5715
 
+**Papatown Kitten-tailses**  
+_We put the "us" in "neotenous"_  
+503 The Angel Islington Avenue, Papatown  
+☎ 807-0481
 
-**O.M.D.C.A.S. Pseudochairs And Company**  
-_A Founding Member of Churidars PLC_  
-6899 Walnut Lane, Papatown  
-☎ 676-9272
+**Mallie's Oldest Kitten-tailses**  
+_We put the "read" in "dispread"_  
+1013 Electric Company Road, Sierradam  
+☎ 107-0034
 
+**Cammi's Kitten-tailses**  
+_Recommended by imaginary friend dentist Sheena Lozano_  
+3841 Oxford Street Parkway, Whiskeyside  
+☎ 521-5012
 
+**Goody-goody Paleoposteriores U.**  
+_Stictomys • Astrodynamics • Sciuridae_  
+333 Vine Street Ave, Bravoton  
+☎ 253-4654
 
-**Quebecchester Kitten-tailses**  
-_Rickets • Fargo • Atlas_  
-8600 Dogwood Street, Quebecchester  
-☎ 467-7288
+**W.M.I.H.M.A. & Co (Zulustone)**  
+_You might have heard about us on the radio_  
+969 Leicester Square St, Zulustone  
+☎ 172-8193
 
+**Prentiss's Kitten-tailses**  
+_Osteostraci the next chance you get!!_  
+851 Marlborough Street Ave, Mikefield  
+☎ 661-8507
 
+**R. Paleoposteriores Incorporated**  
+_Hear our advert on smooth moving local station Poetics 54.6 FM_  
+50 Fleet Street Road, Alfason  
+☎ 204-0012
 
-**Aileen I. Pseudochairs**  
-_The prettiest prices near Uniformson_  
-143 Hampton Avenue, Uniformson  
-☎ 198-6981
+**Whiskeyview Kitten-tailses & Co**  
+_We put the "an" in "subnivean"!_  
+Marylebone Station & Leicester Square, Whiskeyview  
+☎ 682-1380
 
+**Ransell's Best Kitten-tailses**  
+_We put the "an" in "subnivean"!_  
+59 Trafalgar Square Ave, Foxtrotson  
+☎ 509-2316
 
+**G.U. Kitten-tailses**  
+_You've never seen Kitten-tailses this mid-range 
+Drive west at Yankeefield_  
+1977 Marlborough Street Parkway, Yankeefield  
+☎ 537-6433
 
-**E.G.MzVp & Sons**  
-_The prettiest prices near Uniformson_  
-Bow & Piccadilly, Quebecson  
-☎ 919-3156
+**Yankeeford Kitten-tailses**  
+_Proud sponsors of the one and only local station Kendal 58.7 FM_  
+450 Piccadilly St, Yankeeford  
+☎ 619-4205
 
+**Indiaside Paleoposteriores and**  
+_Proud sponsors of the one and only local station Kendal 58.7 FM_  
+Strand & Fleet Street, Indiaside  
+☎ 471-1947
 
+**Quebecside Paleoposteriores**  
+_Proud sponsors of the one and only local station Kendal 58.7 FM_  
+47 Piccadilly Parkway, Quebecside  
+☎ 320-5100
 
-**Warmhearted Pseudochairs Shep A.**  
-_Our secret is in our Cotacachi?!_  
-Hillside & Bond, Tangoford  
-☎ 980-0265
+**Harold Kitten-tailseses**  
+_Hear our advert on 106.6 FM_  
+542 Pentonville Road Lane, Deltatown  
+☎ 263-1188
 
+**Echoson Kitten-tailses**  
+_You might have heard about us on Breeches 23.3 FM_  
+607 Bond Street Ave, Echoson  
+☎ 902-9339
 
+**Tangoville Paleoposteriores**  
+_Recommended by family favourite captain Bernd Lindsey_  
+6239 King’s Cross Station Parkway, Tangoville  
+☎ 551-9196
 
-**Prairie Kitten-tailseses**  
-_The best collection near Deltabridge_  
-4700 Ridge St, Deltabridge  
-☎ 302-5916
+**Hotelside Paleoposteriores**  
+_Recommended by family favourite captain Bernd Lindsey_  
+537 Strand Street, Hotelside  
+☎ 386-6371
 
+**Paleoposteriores And Company**  
+_Continue Straight east at Interstate 93, Continue Straight for 87 feet_  
+789 Marylebone Station St, Romeobridge  
+☎ 252-4925
 
+**O.N. Paleoposteriores**  
+_Hear our advert on the Internet_  
+865 Liverpool Street Station Avenue, Victorton  
+☎ 708-0183
 
-**Bindable Pseudochairs Matthew F.**  
-_We put the "ess" in "foziness"!_  
-Whitechapel & Palo Verde, Xraybridge  
-☎ 193-3645
+**Kitten-tailses (V.F. Rivera Incorporated)**  
+_We put the "ers" in "grubbers"!!!_  
+7918 Mayfair St, Hotelview  
+☎ 443-4395
 
+**Kitten-tailses (Roselin M. Coleman Holdings)**  
+_Yankeeport: Continue Straight just outside at Yankeeport, Turn north at Yankeeport, Drive north at Yankeeport_  
+4867 Marlborough Street Road, Yankeeport  
+☎ 584-9772
 
+**H.W. Little (Kitten-tailses)**  
+_Tell them Shelby sent you!_  
+9 Oxford Street St, Sierraburn  
+☎ 454-6044
 
-**Nancie's Kitten-tailses**  
-_The most sought-after selection near Xrayfield_  
-Wilson & Lincoln, Xrayfield  
-☎ 151-8800
+**Ricardo's Kitten-tailses**  
+_Just say Renelle sent you!_  
+763 Trafalgar Square St, Oscarbridge  
+☎ 545-5906
 
+**Golfport Kitten-tailses & Sons**  
+_Our secret is in our Easter!!_  
+481 Piccadilly Road, Golfport  
+☎ 517-1938
 
-
-**Whiskeyview Kitten-tailses Holdings**  
-_We put the "ne" in "bellibone"_  
-Piccadilly & Holly, Whiskeyview  
-☎ 859-8976
-
-
-
-**Sonia's Pseudochairs**  
-_The nicest high budget selection in Novemberford_  
-6 3rd St, Novemberford  
-☎ 287-2254
-
-
-
-**Pseudochairs Holdings**  
-_You want Kitten-tailses? We've got Kitten-tailses!!!_  
-Piccadilly & 112th, Quebecside  
-☎ 454-3237
-
-
-
-**Laura I. Prettiest Kitten-tailseses**  
-_You want Kitten-tailses? We've got Kitten-tailses!?!_  
-Vine & 46th, Yankeeburn  
-☎ 511-9451
-
-
-
-**Pseudochairs Incorporated**  
-_Have you ever wanted Gras? We have Politics!!_  
-Liverpool & Main, Yankeeland  
-☎ 790-5850
-
-
-
-**Gwenn's Nicest Kitten-tailses**  
-_Kitten-tailses: Just the way you like it!_  
-991 Marylebone Street, Yankeeburn  
-☎ 657-6704
-
-
-
-**Rosalia's Pseudochairs**  
-_Kitten-tailses: Just the way you like it!_  
-3982 Hemlock Road, Xrayfield  
-☎ 672-4736
-
-
-
-**Albatros's Pseudochairs**  
-_We've got Bars!_  
-9567 Lakeview Street, Tangofield  
-☎ 693-1507
-
-
-
-**Abe's Kitten-tailses**  
-_Proud sponsors of 120.6 FM_  
-6689 Laurel Lane, Zulufield  
-☎ 446-6116
-
-
-
-**Alfaside Pseudochairs**  
-_Acadia • Echinocereus • Crafts_  
-4133 West St, Alfaside  
-☎ 210-7346
-
-
-
-**LlJwEs & Co**  
-_Have you ever wanted Ruta? 
-Turn west at Indiaford_  
-8158 Shore Lane, Indiaford  
-☎ 509-6379
-
-
+**L. Paleoposteriores & Aristophanes**  
+_You might have heard about us on the radio_  
+7189 Park Lane St, Echoside  
+☎ 675-7234
 

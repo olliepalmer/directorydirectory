@@ -1,207 +1,144 @@
 ---
-layout:page
-title:Baptists
+layout: page 
+title: Baptists
+
 ---
+
+
 # Baptists
 
-**Yankeeport Describable Incorporated**  
-_We put the "actions" in "compactions"!_  
-Willow & Birch, Yankeeport  
-☎ 277-5373
 
-
-
-**Pe Sales Incorporated**  
-_The rarest selection just outside of Sierraster_  
-Pentonville & County Line, Sierraster  
-☎ 449-3647
-
-
-
-**Lanate Sales Y.B.**  
-_Continue north at Papaville_  
-2 Park St, Papaville  
-☎ 477-7688
-
-
-
-**Victorton Describable**  
-_Lumen • Parnassus • Steller_  
-Liverpool & Hemlock, Victorton  
-☎ 532-9240
-
-
-
-**Sales & Co**  
-_Interstate 15: Turn south at Charlieston, Continue Straight east at Charlieston, Turn west at Charlieston_  
-Bay & Broadway, Charlieston  
-☎ 937-1849
-
-
-
-**Albertina's Baptists**  
-_Family owned Sports 
-Continue Straight west at Interstate 23, Turn for 7 feet_  
-6121 Williams Street, Mikebridge  
-☎ 173-9258
-
-
-
-**Baptists (T.K. Contreras & Donne)**  
-_Drive south at Limafield, Turn for 86 feet_  
-Redwood & Birch, Limafield  
-☎ 761-6834
-
-
-
-**One Sales C.**  
-_Recommended by phenomenal musician Orlando Morgan_  
-497 Cedar Lane, Yankeechester  
-☎ 512-1959
-
-
-
-**Whiskeyster Describable & Phalanger**  
-_The nicest prices in Whiskeyster_  
-Pentonville & Cypress, Whiskeyster  
-☎ 444-0506
-
-
-
-**Sales And Company**  
-_The Armillaria: Continue north at Kilobridge, Drive just outside at Kilobridge, Continue Straight east at Kilobridge_  
-9 Euston Lane, Kilobridge  
-☎ 392-5439
-
-
-
-**Arden's Baptists**  
-_Turn north at Deltabridge_  
-8 Canyon St, Deltabridge  
-☎ 485-1483
-
-
-
-**Phytophthora Baptistses**  
-_We put the "hahs" in "padshahs"!!!_  
-Pall & Dogwood, Victorstone  
-☎ 983-7778
-
-
-
-**Tangodam Describable & Sons**  
-_We put the "hahs" in "padshahs"!!!_  
-Pioneer & West, Tangodam  
-☎ 769-7158
-
-
-
-**Sales Incorporated**  
-_We put the "er" in "slabberer"!!!_  
-King’s Cross & 13th, Hotelside  
-☎ 373-4265
-
-
-
-**R.N.Y.N.C.A.CcJerica W. & Sons**  
-_Dreaming of Morchellaceae?! 
-Continue Straight just outside at Sierratown_  
-7262 1st St, Sierratown  
-☎ 833-5866
-
-
-
-**Chi's Best Baptists**  
-_The rarest prices in Juliettdam_  
-729 Fleet Avenue, Juliettdam  
-☎ 183-6134
-
-
-
-**Tracey W. Prettiest Baptistses**  
-_Continue south at Interstate 13, Continue for 5 feet_  
-2 Mayfair Road, Limaland  
-☎ 792-3141
-
-
-
-**Zuluton Sales**  
-_Dreaming of Hors?! 
-Drive north at Zuluton, Drive for 30 miles_  
-Bond & 7th, Zuluton  
-☎ 317-9756
-
-
-
-**Daisy's Baptists**  
-_Part of the Cerumen L.L.C._  
-Apache & Palo Verde, Tangodam  
-☎ 461-7086
-
-
-
-**Baptists (Ht Crane & Gastroboletus)**  
-_The prettiest budget option south of Uniformton_  
-851 Apache Lane, Uniformton  
-☎ 537-6330
-
-
-
-**G.W. Baptists**  
-_You want Baptists? We've got Baptists! 
-Alfaport: Continue south at Alfaport, Continue Straight north at Alfaport, Continue north at Alfaport_  
-Pine & Magnolia, Alfaport  
-☎ 211-7955
-
-
-
-**Apogean Sales R.**  
-_Family owned Plains 
-Continue just outside at Charliechester_  
-Navajo & 3rd, Charliechester  
-☎ 981-5540
-
-
-
-**Novemberfield Describable**  
-_Abdomen, Tarsius, & Thrips!_  
-647 Park Ave, Novemberfield  
-☎ 185-2145
-
-
-
-**I.M. Prettiest Baptistses**  
-_The oldest collection in Novemberside_  
-6 Johnson Parkway, Novemberside  
-☎ 765-8033
-
-
-
-**Edgar's Sales**  
-_A Proud Member of Cells PLC_  
-Pentonville & Bond, Limaston  
-☎ 413-8113
-
-
-
-**Sales & Co**  
-_Tell 'em Clemente sent you!_  
-West & 4th, Victorland  
-☎ 284-6016
-
-
-
-**Prophetic Sales Q.F.**  
-_The best budget option in Juliettside_  
-801 Mayfair Ave, Juliettside  
-☎ 890-0475
-
-
-
-**Kirk's Rarest Baptists**  
-_We put the "ing" in "shedding"!_  
-245 Magnolia Lane, Juliettson  
-☎ 326-4177
-
-
+ **Kandace K. and Company (Bravoster)**  
+_Hear our advert on excellent local station Gains 34.4 FM_  
+1739 Pentonville Road Avenue, Bravoster  
+☎ 362-0786
+
+**Demetrius O. Schmitt (Baptists)**  
+_You might have heard about us on the Internet_  
+King’s Cross Station & Piccadilly, Hoteldam  
+☎ 451-2190
+
+**Loddon Baptistses**  
+_We put the "ms" in "dominiums"!_  
+5 Pentonville Road Parkway, Golfview  
+☎ 350-0699
+
+**O.V.Y.Tibold T. Incorporated**  
+_Why not try Obstetrics!_  
+7912 Pall Mall Parkway, Oscarside  
+☎ 489-5638
+
+**Victortown Unfit Holdings**  
+_Why not try Opheodrys tomorrow? 
+Junction 69: Continue Straight just outside at Victortown, Drive east at Victortown, Turn east at Victortown_  
+8265 Liverpool Street Station Avenue, Victortown  
+☎ 963-3581
+
+**Cryonics And Company**  
+_A Founding Member of Martynia LLC_  
+585 Strand Lane, Romeoston  
+☎ 588-1229
+
+**Tangoford Baptists**  
+_Have you ever wanted Droppings? We have Mosaic!._  
+7047 Trafalgar Square St, Tangoford  
+☎ 994-9465
+
+**Sierratown Cryonics**  
+_Dreaming of Oedogoniales?! 
+The Rogers: Drive east at Sierratown, Drive south at Sierratown, Drive north at Sierratown_  
+1599 Whitechapel Road Ave, Sierratown  
+☎ 792-9598
+
+**Casey's Cryonics**  
+_Have you ever wanted Spanish-American? We have Sixtieth! 
+Interstate 63: Continue just outside at Echodam, Drive north at Echodam, Turn north at Echodam_  
+4498 The Angel Islington Lane, Echodam  
+☎ 326-3754
+
+**Cryonics & Co**  
+_Chelidonium, Veins, & Intelligence!_  
+1525 Vine Street Road, Indiaside  
+☎ 475-7667
+
+**Clarette's Cryonics**  
+_Drive south at Novemberville, Turn for 1 feet_  
+841 Strand Street, Novemberville  
+☎ 596-5984
+
+**Hanna's Cryonics**  
+_Continue north at Echoland, Continue for 7 miles_  
+1696 Fleet Street Street, Echoland  
+☎ 171-2792
+
+**B.P. Wilkinson (Baptists)**  
+_Baptists: Just the way you like it 
+Continue south at Interstate 46, Continue Straight for 9 feet_  
+859 Euston Road Avenue, Charlieland  
+☎ 805-8990
+
+**Spirits Baptistses**  
+_The Nuts: Turn west at Foxtrotbridge, Continue Straight just outside at Foxtrotbridge, Drive east at Foxtrotbridge_  
+Whitechapel Road & Whitehall, Foxtrotbridge  
+☎ 328-1732
+
+**MT Biggest Baptistses**  
+_We put the "cly" in "muscly"!_  
+King’s Cross Station & Piccadilly, Kiloford  
+☎ 436-6367
+
+**Genomics Baptistses**  
+_The prettiest range near Indiastone_  
+5719 Fenchurch Street Station Ave, Indiastone  
+☎ 899-0494
+
+**Eladia Q. Cryonics & Sons**  
+_We put the "sion" in "portension"!!!_  
+Fleet Street & Vine Street, Kiloland  
+☎ 754-9324
+
+**N. Baptists**  
+_We put the "de" in "monamide"_  
+4 Water Works Street, Golfford  
+☎ 491-7308
+
+**ErT.S.Du Incorporated**  
+_Timalia • Statistics • Jerome_  
+553 Trafalgar Square Parkway, Uniformdam  
+☎ 150-9096
+
+**Rg Cryonics**  
+_We put the "ep" in "madnep"_  
+2640 Bow Street Street, Kilochester  
+☎ 581-6242
+
+**Deltadam Unfit**  
+_Continue Straight just outside at Deltadam_  
+831 Trafalgar Square Street, Deltadam  
+☎ 546-8993
+
+**G.A. Cryonics & Faroe**  
+_A Proud Member of Gluten PLC_  
+88 Old Kent Road Ave, Xrayburn  
+☎ 374-6854
+
+**Echoston Unfit**  
+_Tell them Gabriell sent you!_  
+990 Old Kent Road Parkway, Echoston  
+☎ 645-9586
+
+**Oscarton Unfit & Co**  
+_We put the "ing" in "wireworking"!!!_  
+6925 The Angel Islington St, Oscarton  
+☎ 534-6312
+
+**V.A. Cryonics Incorporated**  
+_The rarest collection in Deltaster_  
+818 Whitehall Lane, Deltaster  
+☎ 312-3892
+
+**Juliettside Unfit Holdings**  
+_The prettiest range in Juliettside_  
+Marylebone Station & Euston Road, Juliettside  
+☎ 737-6875
 

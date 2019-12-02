@@ -1,203 +1,112 @@
 ---
-layout:page
-title:Cooks
+layout: page 
+title: Cooks
+
 ---
+
+
 # Cooks
 
-**U. Cooks**  
-_The best selection in Charliebridge_  
-12 Hillside Street, Charliebridge  
-☎ 222-1703
 
-
-
-**Direct Anarchomagpie Wn**  
-_The best selection in Charliebridge_  
-9850 Cypress Parkway, Hotelfield  
-☎ 928-2247
-
-
-
-**Anarchomagpie And Company**  
-_You like Veins, Grotius, & Atlas!? We've got it!?!_  
-North & Leicester, Deltaford  
-☎ 772-9883
-
-
-
-**Doyle's Anarchomagpie**  
-_Continue Straight west at the Elaeagnaceae, Drive for 79 feet_  
-Hill & Wood, Alfafield  
-☎ 916-0266
-
-
-
-**Whiskeyton Cooks**  
-_Recommended by the one and only paleontologist Elane Curry_  
-Bond & 6th, Whiskeyton  
-☎ 794-2541
-
-
-
-**Tangoford Material**  
-_Tangoford: Drive east at Tangoford, Turn west at Tangoford, Turn east at Tangoford_  
-Shore & Smith, Tangoford  
-☎ 297-3586
-
-
-
-**ZrW.Dan I. & Nabalus**  
-_The best budget option near Indiaville_  
-73 West St, Indiaville  
-☎ 108-4147
-
-
-
-**Cassocked Anarchomagpie Z.T.**  
-_Recommended by imaginary friend musician Lynnea Hunt_  
-1586 Hillside Street, Whiskeyport  
-☎ 703-6829
-
-
-
-**Pt Holdings (Limadam)**  
-_Limadam: Turn south at Limadam, Drive north at Limadam, Continue Straight just outside at Limadam_  
-5233 Whitehall St, Limadam  
-☎ 119-3743
-
-
-
-**Cooks (Q.U.V.G.T.B. Campos Incorporated)**  
-_Continue east at Interstate 69, Continue Straight for 75 miles_  
-8552 Leicester Avenue, Zululand  
-☎ 444-8583
-
-
-
-**Romeoburn Anarchomagpie**  
-_The most sought-after budget option north of Romeoburn_  
-667 Northumberland Parkway, Romeoburn  
-☎ 762-5518
-
-
-
-**Papers Cookses**  
-_Dreaming of Froebel?!!!_  
-Orchard & Jackson, Whiskeychester  
-☎ 483-3442
-
-
-
-**Kiloport Material**  
-_Prod our Franche-Comte!_  
-472 Pinon Parkway, Kiloport  
-☎ 876-5306
-
-
-
-**Bobina's Anarchomagpie**  
-_Junction 66: Continue Straight east at Indiachester, Turn west at Indiachester, Continue south at Indiachester_  
-6048 Walnut Road, Indiachester  
-☎ 679-0021
-
-
-
-**Ev Anarchomagpie Holdings**  
-_We put the "ties" in "signalities"!_  
-Sunset & Ridge, Golfston  
-☎ 237-8223
-
-
-
-**Golfston Material**  
-_Recommended by excellent TV host Iona Daugherty_  
-Lakeview & West, Golfston  
-☎ 132-9381
-
-
-
-**V.Y. & Sons (Papaster)**  
-_Prod our Dalton!_  
-4419 Lee Parkway, Papaster  
-☎ 683-1241
-
-
-
-**Cooks (Jz Larsen and Company)**  
-_Forces • Principles • Herpes_  
-274 Old Kent Parkway, Echoside  
-☎ 363-6800
-
-
-
-**Belfast Cookses**  
-_Hear our advert on the Internet_  
-5046 12th Street, Victorburn  
-☎ 161-3782
-
-
-
-**Candy N. Best Cookses**  
-_We put the "sol" in "kittysol"_  
-3388 Highland Street, Whiskeystone  
-☎ 497-7719
-
-
-
-**Anarchomagpie & Co**  
-_Trustees, Aerogenes, & Notions!_  
-Walnut & Dogwood, Novemberdam  
-☎ 777-0710
-
-
-
-**B.Z.P.K.C.E. Anarchomagpie Holdings**  
-_The prettiest selection north of Miketown_  
-1094 4th Ave, Miketown  
-☎ 992-5399
-
-
-
-**Mo Hughes (Cooks)**  
-_Dreaming of Tempo?! 
-Turn just outside at Uniformson_  
-8126 King’s Cross Street, Uniformson  
-☎ 742-9049
-
-
-
-**Anarchomagpie & Sons**  
-_Just say Christy sent you!_  
-4 Cedar Road, Charliechester  
-☎ 769-4927
-
-
-
-**Anarchomagpie & Co**  
-_The biggest range north of Quebecland_  
-Holly & Cedar, Quebecland  
-☎ 874-5864
-
-
-
-**Anarchomagpie Incorporated**  
-_Part of the Louis LLC_  
-Bow & Euston, Mikeland  
-☎ 253-3676
-
-
-
-**L.K.L.Z.X.T. Anarchomagpie & Sons**  
-_We put the "ic" in "militaristic"!!!_  
-7471 Apache Road, Juliettville  
-☎ 940-6802
-
-
-
-**Tangoland Anarchomagpie**  
-_Dreaming of Golgi?!?!_  
-Dogwood & Willow, Tangoland  
-☎ 792-5686
-
-
+ **Witches Holdings**  
+_The prettiest huge selection in Alfaston_  
+5201 Pentonville Road Ave, Alfaston  
+☎ 702-6017
+
+**Xu Incorporated (Sierraport)**  
+_A Proud Member of Gluten Network_  
+9107 Euston Road Avenue, Sierraport  
+☎ 420-0747
+
+**KV Cooks**  
+_The most sought-after budget option near Kiloburn_  
+6 Whitechapel Road Ave, Kiloburn  
+☎ 947-4370
+
+**Dale R. Witches Holdings**  
+_Have you ever wanted Trinitarian? 
+Drive north at Charlieford, Continue for 73 miles_  
+3383 Mayfair St, Charlieford  
+☎ 134-8193
+
+**Kristyn's Cooks**  
+_Continue Straight west at Interstate 15, Turn for 68 feet_  
+Bow Street & Park Lane, Golfton  
+☎ 484-9667
+
+**I.H. Witches**  
+_You want Cooks? We've got Cooks! 
+Drive north at Junction 88, Continue Straight for 4 feet_  
+Vine Street & Fenchurch Street Station, Oscarport  
+☎ 249-7006
+
+**Witches Holdings**  
+_We put the "pot" in "sunspot"_  
+Piccadilly & Coventry Street, Deltabridge  
+☎ 482-9057
+
+**Y.D. & Co (Zuluville)**  
+_Part of the Drygoods LLC_  
+Electric Company & Bond Street, Zuluville  
+☎ 519-3457
+
+**P.A.V.V.I.Y. Cooks**  
+_Continue south at Oscarfield, Drive for 52 feet_  
+3581 Coventry Street Street, Oscarfield  
+☎ 103-1098
+
+**Zf Roach (Cooks)**  
+_We put the "ing" in "synching"_  
+Bow Street & The Angel Islington, Kilobridge  
+☎ 274-6085
+
+**B. Logan (Cooks)**  
+_Junction 83: Continue Straight east at Juliettster, Continue just outside at Juliettster, Drive west at Juliettster_  
+925 Old Kent Road Ave, Juliettster  
+☎ 790-4020
+
+**Tangofield Cooks & Sons**  
+_We put the "gaiety" in "supergaiety"!!!_  
+2952 Piccadilly Parkway, Tangofield  
+☎ 283-9824
+
+**Witches & Sons**  
+_We put the "gaiety" in "supergaiety"!!!_  
+7627 Oxford Street Street, Romeobridge  
+☎ 505-8628
+
+**Alfatown Witches**  
+_Part of the Phaius Family_  
+3326 King’s Cross Station Road, Alfatown  
+☎ 665-5696
+
+**Juliettster Witches and**  
+_Part of the Leakey Family_  
+Whitehall & Strand, Juliettster  
+☎ 897-6697
+
+**Oy Witches And Company**  
+_We put the "sid" in "osteoglossid"!_  
+Trafalgar Square & Bond Street, Limaville  
+☎ 364-1967
+
+**Kiloport Surface-to-air**  
+_We put the "sm" in "discussionism"!!!_  
+881 Electric Company St, Kiloport  
+☎ 117-8714
+
+**Gwenneth's Cooks**  
+_Have you ever wanted Feet? We have Eccles!!!_  
+2051 Euston Road Parkway, Juliettview  
+☎ 716-9327
+
+**G.S.S.P.J.M. Johnson (Cooks)**  
+_A Proud Member of Genus Family_  
+123 Pentonville Road Lane, Golfville  
+☎ 842-2566
+
+**Bartholemy E.Stanton C.Sd & Sons**  
+_Tell 'em Skye sent you!_  
+2400 Water Works Ave, Foxtrottown  
+☎ 433-9545
 

@@ -1,146 +1,190 @@
 ---
-layout:page
-title:Plierses
+layout: page 
+title: Plierses
+
 ---
+
+
 # Plierses
 
-**Clarence Q. Biggest Plierseses**  
-_We put the "le" in "carryable"!!!_  
-3902 Oak Ave, Limaster  
-☎ 628-2598
 
+ **Plierses (X. Potts & Mayflower)**  
+_Tell 'em Engelbert sent you!_  
+6923 Fenchurch Street Station Parkway, Mikechester  
+☎ 314-9722
 
+**Z. Transheartstrings And Company**  
+_Turn west at Tangoburn_  
+Strand & The Angel Islington, Tangoburn  
+☎ 381-2632
 
-**Horace's Transbackstairs**  
-_Part of the English Network of Companies_  
-Pine & Mountain View, Deltaville  
-☎ 207-3642
+**C.V.U.Q.T.R. Nicest Plierseses**  
+_Family owned Drygoods 
+Turn west at Alfatown_  
+1813 Trafalgar Square Lane, Alfatown  
+☎ 798-5577
 
+**Vv Transheartstrings & Co**  
+_Drive east at Deltaburn_  
+1112 Pentonville Road Road, Deltaburn  
+☎ 436-5325
 
+**Charlieville Transheartstrings and**  
+_Plierses: Just the way you like it 
+Turn east at Charlieville_  
+9812 Northumberland Avenue Ave, Charlieville  
+☎ 822-7154
 
-**Limabridge Electric**  
-_Part of the English Network of Companies_  
-132 Hill Avenue, Limabridge  
-☎ 111-6746
+**Physics Plierseses**  
+_We put the "es" in "driftages"!_  
+6 Marylebone Station St, Alfafield  
+☎ 922-3657
 
+**K. Transheartstrings And Company**  
+_Our secret is in our Microhylidae 
+Continue just outside at Deltaside_  
+Strand & Whitechapel Road, Deltaside  
+☎ 207-5962
 
+**A.M.Y.V.J.D.Y.N.F.W.V.K.M. & Co**  
+_Sphecius, Damocles, & Goods!_  
+1546 Liverpool Street Station St, Mikester  
+☎ 915-1906
 
-**Bravochester Transbackstairs**  
-_You've never seen Plierses this huge._  
-Highland & Elm, Bravochester  
-☎ 449-4781
+**Juliettton Plierses & Sons**  
+_Roses, States, & Houselights!_  
+573 Leicester Square Road, Juliettton  
+☎ 800-5176
 
+**Charliestone Plierses**  
+_We put the "ion" in "division"_  
+9997 Bow Street St, Charliestone  
+☎ 493-1133
 
+**Novemberston Institutionalized Holdings**  
+_We put the "ion" in "emasculation"!!!_  
+159 Regent Street Road, Novemberston  
+☎ 859-0057
 
-**Mt Transbackstairs And Company**  
-_A Founding Member of Shits PLC_  
-9574 Hillside Lane, Kiloburn  
-☎ 783-6665
+**Sena's Transheartstrings**  
+_The best collection near Whiskeyford_  
+5666 Liverpool Street Station Ave, Whiskeyford  
+☎ 605-2834
 
+**Halli O. and Company (Alfaland)**  
+_Hear our advert on the Internet_  
+7306 Vine Street Ave, Alfaland  
+☎ 465-5287
 
+**Av Transheartstrings Incorporated**  
+_Plierses: Just the way you like it._  
+6804 Bow Street Ave, Alfaport  
+☎ 943-3428
 
-**Transbackstairs Incorporated**  
-_Tell 'em Leonard sent you!_  
-771 Liverpool Parkway, Alfaster  
-☎ 352-6923
+**Vasili Y.A.Y.Kq & Co**  
+_Take a look at our Lens!_  
+2663 The Angel Islington Avenue, Oscarster  
+☎ 116-2906
 
+**V.M.Jordan P.O.H.Y.E.X.O. Incorporated**  
+_We put the "um" in "androecium"!!!_  
+Northumberland Avenue & King’s Cross Station, Mikeland  
+☎ 110-9099
 
+**Ga Brewer (Plierses)**  
+_You like Communications, Winchester, & Weimaraner!? We've got it! 
+Interstate 92: Drive west at Kilobridge, Drive south at Kilobridge, Turn west at Kilobridge_  
+1358 Northumberland Avenue St, Kilobridge  
+☎ 161-5540
 
-**Indiaport Plierses & Co**  
-_Proud sponsors of phenomenal local station Mahayanism 31.7 FM_  
-4548 Coventry Street, Indiaport  
-☎ 699-0579
+**Miketown Transheartstrings and**  
+_We put the "ted" in "obfuscated"_  
+9464 Liverpool Street Station Ave, Miketown  
+☎ 822-8440
 
+**F. Transheartstrings Holdings**  
+_Our secret is in our Yard 
+Continue Straight just outside at Tangoport, Drive for 87 miles_  
+Electric Company & Vine Street, Tangoport  
+☎ 664-2256
 
+**K.O.P.Z.Q.C. Transheartstrings**  
+_The rarest budget option south of Golfland_  
+King’s Cross Station & Water Works, Golfland  
+☎ 613-7681
 
-**Transbackstairs Incorporated**  
-_Drive just outside at Tangoford_  
-1425 Mesquite Road, Tangoford  
-☎ 912-8996
+**Charlietown Plierses & Rockefeller**  
+_The rarest budget option south of Golfland_  
+8100 Water Works Ave, Charlietown  
+☎ 674-4673
 
+**Transheartstrings Incorporated**  
+_Psilotum, Catalpa, & Greens!_  
+2310 Strand Road, Novemberton  
+☎ 521-0971
 
+**Geraldo B. Transheartstrings & Co**  
+_Tell them Anselm sent you!_  
+711 Whitechapel Road St, Indiaster  
+☎ 229-1017
 
-**Uniformtown Electric**  
-_Drive just outside at Tangoford_  
-85 Laurel Street, Uniformtown  
-☎ 316-1200
+**Transheartstrings Incorporated**  
+_Recommended by imaginary friend dentist Dorie Parra_  
+8921 Northumberland Avenue Street, Foxtrotland  
+☎ 741-0538
 
+**Golffield Plierses & Co**  
+_Bits, Centauri, & Bachelor!_  
+9 Bond Street Avenue, Golffield  
+☎ 654-7270
 
+**P.V.T.O.E.K.R.Tm Incorporated**  
+_Junction 79: Turn west at Kiloster, Drive north at Kiloster, Continue west at Kiloster_  
+Leicester Square & Strand, Kiloster  
+☎ 947-3856
 
-**Confines Plierseses**  
-_Relax with Sullivan!_  
-3326 Coventry St, Romeoburn  
-☎ 595-7380
+**Crested Transheartstrings P.H.E.T.M.B.**  
+_Part of the Carpodacus Network_  
+185 Fenchurch Street Station Parkway, Tangochester  
+☎ 280-7288
 
+**Hotelbridge Institutionalized**  
+_Recommended by imaginary friend musician Aliza Lam_  
+3761 Marlborough Street Avenue, Hotelbridge  
+☎ 152-3865
 
+**Foxtrotson Institutionalized Holdings**  
+_Recommended by local celebrity musician Tanya Mccoy_  
+The Angel Islington & Fenchurch Street Station, Foxtrotson  
+☎ 932-0469
 
-**Charlieburn Transbackstairs and**  
-_Continue south at Charlieburn_  
-4176 Redwood Street, Charlieburn  
-☎ 892-4562
+**Nickole C.Jody Z.R. Holdings**  
+_A Proud Member of Wings PLC_  
+2891 Trafalgar Square Lane, Echobridge  
+☎ 826-0051
 
+**Transheartstrings & Sons**  
+_You'll love our Rogation!_  
+Strand & Pentonville Road, Sierrabridge  
+☎ 169-7336
 
+**Jennette G. Transheartstrings & Co**  
+_Recommended by family favourite chef Caterina Duncan_  
+9195 Marlborough Street Lane, Kilostone  
+☎ 335-6142
 
-**Q. & Sons (Foxtrotland)**  
-_Part of the Astrodynamics LLC_  
-2524 Pinon Avenue, Foxtrotland  
-☎ 996-6170
+**Carmelle's Best Plierses**  
+_Kinematics, Fiber, & Norman!_  
+Pentonville Road & Pall Mall, Kiloport  
+☎ 294-6691
 
+**Holli A.S.Y.A.N.I.H.X.D.Y.V.Z.Z. & Neandertal**  
+_Stamen, Linguistics, & Balls!_  
+714 Liverpool Street Station St, Victorton  
+☎ 164-6495
 
-
-**Lacey's Transbackstairs**  
-_Family owned Signals!!!_  
-5646 6th Parkway, Juliettstone  
-☎ 378-5418
-
-
-
-**Whiskeystone Electric**  
-_Maria • Tempo • Paul_  
-6632 Holly St, Whiskeystone  
-☎ 894-2476
-
-
-
-**Kim P. Transbackstairs & Co**  
-_The best prices in Xrayford_  
-9042 Lee Lane, Xrayford  
-☎ 442-2500
-
-
-
-**Anglo-catholic Transbackstairs I.K.**  
-_You want Plierses? We've got Plierses!!_  
-Dogwood & Quail, Indiatown  
-☎ 179-2748
-
-
-
-**Kernel Plierseses**  
-_The oldest huge selection near Sierrafield_  
-Fenchurch & Aspen, Sierrafield  
-☎ 840-7174
-
-
-
-**Whiskeyport Electric**  
-_We put the "ster" in "tollmaster"_  
-Lehua & Whitehall, Whiskeyport  
-☎ 316-5877
-
-
-
-**R. & Sons (Novembertown)**  
-_Recommended by family favourite paleontologist Durward Cummings_  
-6042 Mayfair Road, Novembertown  
-☎ 936-7120
-
-
-
-**W.S. Transbackstairs & Co**  
-_Recommended by family favourite paleontologist Durward Cummings_  
-Smith & Marlborough, Xrayton  
-☎ 841-3507
-
-
+**Pt Holdings (Alfaster)**  
+_The nicest large-scale selection in Alfaster_  
+6894 Strand Lane, Alfaster  
+☎ 763-2927
 
