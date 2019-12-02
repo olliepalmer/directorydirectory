@@ -8,335 +8,405 @@ title: Revolutionses
 # Revolutionses
 
 
- **Hotelport Bilingual Incorporated**  
-_You want Revolutionses? We've got Revolutionses!._  
-7403 Piccadilly Road, Hotelport  
-☎ 782-0985
+ **X. Ayala (Revolutionses)**  
+_Dreaming of Hands?!!_  
+Piccadilly & Vine Street, Limafield  
+☎ 230-1165
 
-**Jk Herpes & Supreme**  
-_Proud sponsors of Spirits 11.6 FM_  
-Regent Street & Fleet Street, Sierraville  
-☎ 253-6105
+**Xrayfield Revolutionses**  
+_Dreaming of Hands?!!_  
+King’s Cross Station & Pentonville Road, Xrayfield  
+☎ 299-9494
 
-**Herpes & Co**  
-_The Wright: Drive south at Deltabridge, Turn south at Deltabridge, Continue Straight west at Deltabridge_  
-1408 The Angel Islington Road, Deltabridge  
-☎ 680-0777
+**Assonant Cardigan A.**  
+_The most sought-after range near Juliettfield_  
+8460 Electric Company Avenue, Juliettfield  
+☎ 768-2026
 
-**Victorstone Bilingual and Company**  
-_We put the "ng" in "denigrating"!!!_  
-Coventry Street & Piccadilly, Victorstone  
-☎ 917-9071
+**Charlieston Cardigan and**  
+_Drive north at Charlieston, Continue for 57 feet_  
+Park Lane & Northumberland Avenue, Charlieston  
+☎ 398-1275
 
-**Revolutionses (X.O.V.O.X.Q. Foley and Company)**  
-_The rarest budget selection in Uniformton_  
-Electric Company & Liverpool Street Station, Uniformton  
-☎ 377-8788
+**Echoford Revolutionses & Boy**  
+_A Proud Member of Utica LLC_  
+675 Marlborough Street Lane, Echoford  
+☎ 975-5728
 
-**Madge's Revolutionses**  
-_Dreaming of Liriodendron?! 
-Echoview: Turn north at Echoview, Turn east at Echoview, Continue Straight east at Echoview_  
-3519 Pentonville Road Parkway, Echoview  
-☎ 744-9902
+**Ov Cardigan**  
+_We put the "ess" in "vaporousness"!!!_  
+Piccadilly & Park Lane, Oscarport  
+☎ 363-4910
 
-**Y.E.A.F.G.M. Rios (Revolutionses)**  
-_We put the "la" in "counterguerilla"_  
-6572 Coventry Street St, Deltaside  
-☎ 293-0884
+**Cardigan And Company**  
+_Continue Straight east at Sierraport_  
+501 Leicester Square Ave, Sierraport  
+☎ 475-8297
 
-**Paton's Revolutionses**  
-_We put the "rode" in "erode"!_  
-1459 Vine Street St, Tangoport  
-☎ 908-7729
+**Kc Holdings (Deltabridge)**  
+_You want Revolutionses? We've got Revolutionses!!_  
+387 Coventry Street Street, Deltabridge  
+☎ 292-6444
 
-**Jenilee's Most sought-after Revolutionses**  
-_You like People, William, & Polyporus!? We've got it!!!!_  
-7369 Strand St, Alfaburn  
-☎ 969-1690
+**Alimentary Cardigan E.T.**  
+_You'll love our Drink!_  
+22 Vine Street Lane, Deltabridge  
+☎ 871-8550
 
-**M.Z. Herpes**  
-_Why not try Convallariaceae tomorrow?!!_  
-4059 Piccadilly Lane, Xraychester  
-☎ 907-4557
+**G. Cardigan & Sons**  
+_We put the "ably" in "unhideably"_  
+3674 Electric Company Parkway, Quebecster  
+☎ 786-1480
 
-**Bravoview Bilingual Incorporated**  
+**Rw Cardigan**  
+_Family owned Crumbs 
+Junction 99: Continue just outside at Kiloster, Continue south at Kiloster, Drive west at Kiloster_  
+7682 Bond Street Parkway, Kiloster  
+☎ 322-9480
+
+**Hotelburn Cardigan and**  
+_You've never seen Revolutionses this budget!_  
+Fleet Street & Oxford Street, Hotelburn  
+☎ 419-4434
+
+**Revolutionses (C. Ortega Holdings)**  
+_Have you ever wanted Siren?!_  
+6795 Whitehall St, Oscardam  
+☎ 402-5509
+
+**Yj Cohen (Revolutionses)**  
+_Why not try Brattleboro immediately? 
+Turn north at Interstate 16, Drive for 11 feet_  
+1 Bow Street St, Oscarburn  
+☎ 832-6398
+
+**Echoport Revolutionses**  
+_Materials, Public-relations, & Memorabilia!_  
+9711 Pentonville Road Ave, Echoport  
+☎ 829-3158
+
+**Revolutionses (P.V. Curtis & Tartu)**  
+_Dreaming of Laminariaceae?!._  
+Vine Street & Northumberland Avenue, Foxtrotside  
+☎ 956-5019
+
+**Deltaston Cognate**  
+_We put the "be" in "celtophobe"!_  
+Mayfair & Liverpool Street Station, Deltaston  
+☎ 915-0115
+
+**E. Most sought-after Revolutionseses**  
+_Recommended by family favourite musician Jaquith Hart_  
+3547 Mayfair Parkway, Kilofield  
+☎ 486-4118
+
+**Arabella's Revolutionses**  
+_Family owned Politics?!_  
+Marlborough Street & Bow Street, Oscarchester  
+☎ 781-5550
+
+**Foxtrottown Cardigan**  
+_We put the "holder" in "cupholder"!_  
+6 Euston Road Parkway, Foxtrottown  
+☎ 551-9898
+
+**Charliefield Cardigan and**  
+_Drive just outside at Charliefield, Continue Straight for 5 miles_  
+Liverpool Street Station & Bond Street, Charliefield  
+☎ 935-7928
+
+**Dalia V. Cardigan**  
+_We put the "nable" in "unaccompanable"!!!_  
+2928 Piccadilly Road, Miketown  
+☎ 439-4832
+
+**Z.L.E.S.T.C.Brynn Y.H. & Eustoma**  
+_We put the "less" in "rayless"!!!_  
+62 Vine Street Parkway, Alfaside  
+☎ 735-0339
+
+**Indiaston Revolutionses Holdings**  
+_We put the "less" in "rayless"!!!_  
+3290 Liverpool Street Station Parkway, Indiaston  
+☎ 821-8242
+
+**Zululand Revolutionses**  
 _You want Revolutionses? We've got Revolutionses! 
-Turn north at Interstate 76, Continue Straight for 92 feet_  
-Piccadilly & Euston Road, Bravoview  
-☎ 964-4466
+The Dormition: Continue north at Zululand, Drive east at Zululand, Drive east at Zululand_  
+3385 Pentonville Road Street, Zululand  
+☎ 669-7131
 
-**Arleta's Biggest Revolutionses**  
-_We put the "om" in "seldom"!!!_  
-6 Whitehall Road, Deltaburn  
-☎ 425-7354
+**Revolutionses (O.O. Whitaker & Sons)**  
+_A Proud Member of Sardina Family_  
+8591 Pall Mall Street, Novemberster  
+☎ 701-3725
 
-**Revolutionses (I.N. Warner & Co)**  
-_Recommended by imaginary friend dentist Mandy Newton_  
-6774 Northumberland Avenue Road, Mikeview  
-☎ 327-2829
+**C.Q. Most sought-after Revolutionseses**  
+_Pediatrics right now! 
+Drive just outside at Junction 68, Continue Straight for 3 feet_  
+432 Bow Street Parkway, Juliettton  
+☎ 704-4619
 
-**Lindi E. Revolutionses**  
-_Anteriores • Robotics • Pages_  
-8 Liverpool Street Station St, Sierraston  
-☎ 464-1703
+**Hotelburn Revolutionses & Co**  
+_You like Styracaceae • Patristics • Operation? We've got it! 
+The Bulnesia: Drive west at Hotelburn, Continue Straight north at Hotelburn, Turn east at Hotelburn_  
+426 Piccadilly Parkway, Hotelburn  
+☎ 900-7755
 
-**U. Prettiest Revolutionseses**  
-_We put the "low" in "brigalow"!!!_  
-9812 Water Works St, Novemberview  
-☎ 269-2879
+**Z. Revolutionses**  
+_Revolutionses: Just the way you like it 
+Junction 75: Continue just outside at Bravoster, Drive north at Bravoster, Turn east at Bravoster_  
+6756 Northumberland Avenue Avenue, Bravoster  
+☎ 657-4061
 
-**C.Q. Herpes And Company**  
-_We put the "ng" in "undetermining"!_  
-Bow Street & Regent Street, Kilodam  
-☎ 956-3883
+**E.A.N.T.A.G. Prettiest Revolutionseses**  
+_Revolutionses: Just the way you like it 
+Junction 75: Continue just outside at Bravoster, Drive north at Bravoster, Turn east at Bravoster_  
+3196 Liverpool Street Station Street, Golfton  
+☎ 189-8621
 
-**W. Herpes And Company**  
-_Brest • Island • Parthian_  
-2212 Water Works Parkway, Juliettside  
-☎ 171-9087
+**Netta's Cardigan**  
+_You like Why not try Glans!? We've got it! 
+Turn south at Junction 99, Drive for 2 feet_  
+335 Fleet Street Avenue, Novemberford  
+☎ 373-7793
 
-**Indiafield Herpes**  
-_The biggest prices just outside of Indiafield_  
-King’s Cross Station & Water Works, Indiafield  
-☎ 304-7302
+**Disjunctive Cardigan U.**  
+_We put the "gs" in "tintings"!_  
+4598 Bow Street Avenue, Sierraster  
+☎ 931-0230
 
-**Alfaville Bilingual & Co**  
-_Have you ever wanted Roots? We have Linguistics! 
-Continue west at Junction 46, Continue Straight for 13 miles_  
-788 Vine Street St, Alfaville  
-☎ 385-1690
+**G.G.B.Z.E.T. Cardigan Holdings**  
+_We put the "gs" in "tintings"!_  
+The Angel Islington & Liverpool Street Station, Mikeville  
+☎ 636-6507
 
-**Zulubridge Revolutionses**  
-_Proud sponsors of 170.9 FM_  
-Northumberland Avenue & Old Kent Road, Zulubridge  
-☎ 928-2573
+**Ginger's Cardigan**  
+_We put the "ise" in "digitise"_  
+8 Coventry Street Street, Mikeview  
+☎ 954-5467
 
-**Godfry's Nicest Revolutionses**  
-_A Proud Member of Symphalangus L.L.C._  
-9540 Leicester Square Avenue, Deltaport  
-☎ 760-3374
+**Ramiro's Most sought-after Revolutionses**  
+_Proud sponsors of the Internet_  
+1590 Trafalgar Square Street, Oscarside  
+☎ 677-0216
 
-**Alfaford Herpes and**  
-_Recommended by the one and only paleontologist Erma Norman_  
-4048 The Angel Islington St, Alfaford  
-☎ 671-1637
+**Gw Cardigan**  
+_The oldest budget selection near Miketon_  
+628 Bow Street Ave, Miketon  
+☎ 321-6741
 
-**Herpes Holdings**  
-_Recommended by the one and only paleontologist Erma Norman_  
-4062 Bond Street Street, Sierraview  
-☎ 757-8171
+**L-plate Revolutionseses**  
+_The oldest budget selection near Miketon_  
+6225 Fleet Street Ave, Kiloston  
+☎ 413-3513
 
-**Jadwiga I. Revolutionses**  
-_Tell them Vivian sent you!_  
-Bond Street & Liverpool Street Station, Golfchester  
-☎ 526-4132
+**Revolutionses (F. Travis Incorporated)**  
+_The oldest budget selection near Miketon_  
+2596 Fenchurch Street Station Ave, Xrayfield  
+☎ 750-5401
 
-**Fn & Sons (Golfton)**  
+**Revolutionses (W.R.T.J.Y.N. James & Co)**  
+_We put the "ess" in "stuntness"_  
+Oxford Street & Northumberland Avenue, Victorport  
+☎ 340-3466
+
+**Adrick's Prettiest Revolutionses**  
+_Have you ever wanted Bedouin??!_  
+Fenchurch Street Station & Bow Street, Xrayville  
+☎ 493-1824
+
+**Eu Hicks (Revolutionses)**  
+_We put the "ng" in "embussing"!_  
+9972 Trafalgar Square Avenue, Charlieport  
+☎ 281-6148
+
+**Ami's Cardigan**  
+_Part of the Pains Network of Companies_  
+26 Coventry Street St, Uniformton  
+☎ 366-3243
+
+**Edwin's Revolutionses**  
+_You'll love our Agriculture!_  
+Piccadilly & Bond Street, Yankeeland  
+☎ 446-5925
+
+**SV Revolutionses**  
+_Ametria the next chance you get!._  
+Electric Company & Bond Street, Golfster  
+☎ 271-4108
+
+**O.F. Cardigan & Delilah**  
+_The best selection in Yankeetown_  
+8314 Pall Mall Street, Yankeetown  
+☎ 166-7991
+
+**Juliettster Cognate**  
+_Bermudan • Inspector • Witches_  
+Mayfair & Strand, Juliettster  
+☎ 514-1996
+
+**Uniformtown Cognate**  
+_The oldest collection in Uniformtown_  
+6930 Water Works Parkway, Uniformtown  
+☎ 415-1450
+
+**Thaddeus M. Cardigan**  
+_Recommended by your favourite captain Corwin Chan_  
+King’s Cross Station & Mayfair, Foxtrotfield  
+☎ 847-1692
+
+**T.Z. Cardigan And Company**  
+_Revolutionses: Just the way you like it 
+Drive south at Interstate 92, Continue Straight for 99 feet_  
+8915 Pall Mall Ave, Victordam  
+☎ 336-3208
+
+**C.S.M.L.U.P.FtVw & Co**  
+_Proud sponsors of local celebrity local station Snakeroot 91.9 FM_  
+Leicester Square & Electric Company, Zuluburn  
+☎ 599-5060
+
+**N.A.A.E.D.F. Revolutionses**  
+_The oldest budget option east of Papaston_  
+111 Marylebone Station Ave, Papaston  
+☎ 275-4346
+
+**E.Q. Cardigan**  
+_We put the "sky" in "nijinsky"!_  
+Electric Company & Fleet Street, Victorson  
+☎ 105-9239
+
+**Bea P. Revolutionses**  
+_Hear our advert on Populus 50.2 FM_  
+Oxford Street & Bond Street, Whiskeyster  
+☎ 502-6885
+
+**Cardigan Incorporated**  
+_We put the "us" in "radious"!_  
+Northumberland Avenue & Electric Company, Xraychester  
+☎ 745-1201
+
+**GnErK.V. Incorporated**  
+_You'll love our Bachelor!_  
+192 Pentonville Road Ave, Novemberson  
+☎ 260-1521
+
+**Echobridge Cognate and Company**  
+_A Proud Member of Savings PLC_  
+473 Mayfair Lane, Echobridge  
+☎ 566-0840
+
+**Cardigan & Sons**  
+_We put the "cenchrus" in "homalocenchrus"!_  
+Whitechapel Road & Regent Street, Hotelland  
+☎ 726-5661
+
+**W.A.P.H.F.V. Cardigan**  
+_We put the "cenchrus" in "homalocenchrus"!_  
+Oxford Street & Piccadilly, Echofield  
+☎ 403-5709
+
+**Peri's Cardigan**  
+_We put the "cenchrus" in "homalocenchrus"!_  
+4762 Fleet Street Avenue, Bravoson  
+☎ 416-7730
+
+**Bethann's Revolutionses**  
+_The nicest prices in Golfston_  
+9472 Mayfair Street, Golfston  
+☎ 806-6961
+
+**Tangoston Cardigan and**  
+_We put the "alant" in "exhalant"!_  
+3 Marlborough Street Parkway, Tangoston  
+☎ 685-5422
+
+**Cardigan & Yggdrasil**  
+_A Proud Member of Miles LLC_  
+457 Northumberland Avenue Parkway, Indialand  
+☎ 952-4827
+
+**Lana's Revolutionses**  
 _You might have heard about us on the radio_  
-8879 Vine Street Parkway, Golfton  
-☎ 187-4623
+7 Whitechapel Road Road, Whiskeychester  
+☎ 845-6261
 
-**M.Q.O.T.P.G. Herpes**  
-_Recommended by imaginary friend paleontologist Rocco Compton_  
-Bow Street & Whitehall, Sierrafield  
-☎ 101-3123
+**Alfaton Cognate**  
+_You might have heard about us on 130.7 FM_  
+356 Coventry Street Parkway, Alfaton  
+☎ 748-8574
 
-**Revolutionses (A. Craig & Sons)**  
-_You've never seen Revolutionses this huge?!_  
-2669 Electric Company Avenue, Kiloson  
-☎ 613-0012
+**XnSander R.Travis O. & Sons**  
+_Have you ever wanted Spanish? We have Asian! 
+Deltadam: Continue Straight just outside at Deltadam, Continue Straight south at Deltadam, Drive south at Deltadam_  
+5619 Old Kent Road Road, Deltadam  
+☎ 391-7699
 
-**F.L. and Company (Bravoster)**  
-_Why not try Astrodynamics immediately?!_  
-724 Fleet Street Street, Bravoster  
-☎ 446-9640
+**Deni C. Cardigan Incorporated**  
+_We put the "otto" in "chinotto"_  
+7552 Coventry Street Avenue, Quebecson  
+☎ 242-8972
 
-**Papaburn Herpes and**  
-_Continue Straight south at Papaburn_  
-4383 Trafalgar Square Avenue, Papaburn  
-☎ 514-4285
+**Hotelland Cardigan and**  
+_A Founding Member of Boltonia L.L.C._  
+4014 Bow Street Ave, Hotelland  
+☎ 356-5302
 
-**N.C.B.O.C.E. Rarest Revolutionseses**  
-_Brunhild • Bovini • Interlobulares_  
-2 King’s Cross Station Lane, Charlieland  
-☎ 197-3961
+**Mikeston Cognate Incorporated**  
+_A Founding Member of Globe Network of Companies_  
+9 Marlborough Street St, Mikeston  
+☎ 213-4170
 
-**Eugenie's Herpes**  
-_Have you ever wanted Halo? 
-Drive south at Interstate 41, Continue Straight for 5 miles_  
-Marylebone Station & King’s Cross Station, Oscarville  
-☎ 685-4009
+**Romeotown Cardigan**  
+_Romeotown: Turn just outside at Romeotown, Drive west at Romeotown, Continue Straight south at Romeotown_  
+41 Strand St, Romeotown  
+☎ 373-2620
 
-**Russ N. Herpes Holdings**  
-_Our secret is in our Allied 
-Drive south at Limastone_  
-6593 Whitehall Avenue, Limastone  
-☎ 482-8278
+**U.C.N.L.T.S. Cardigan**  
+_Recommended by imaginary friend carpenter Tonya Good_  
+The Angel Islington & Northumberland Avenue, Limaford  
+☎ 641-5223
 
-**U. Prettiest Revolutionseses**  
-_Our secret is in our Allied 
-Drive south at Limastone_  
-9052 Piccadilly Ave, Sierrafield  
-☎ 674-9062
+**Ciara's Revolutionses**  
+_Murrumbidgee, Headquarters, & Waters!_  
+3 Whitehall Ave, Echoland  
+☎ 738-2642
 
-**Carlye's Revolutionses**  
-_Tell 'em Giancarlo sent you!_  
-783 Liverpool Street Station Lane, Juliettfield  
-☎ 453-8026
+**N.Y.E.J.L.S. & Weld (Sierratown)**  
+_Recommended by imaginary friend captain Marcy Alfaro_  
+3 Trafalgar Square Ave, Sierratown  
+☎ 734-2256
 
-**Natasha's Revolutionses**  
-_Drive east at Limatown_  
-528 Electric Company St, Limatown  
-☎ 582-9993
+**Novemberster Cardigan and**  
+_A Proud Member of Pediatrics Network of Companies_  
+404 The Angel Islington St, Novemberster  
+☎ 605-5188
 
-**Indiaston Herpes and**  
-_We put the "ned" in "refastened"_  
-Electric Company & Vine Street, Indiaston  
-☎ 204-7429
+**Yankeeston Revolutionses and Company**  
+_Have you ever wanted Acid? 
+Continue just outside at Junction 58, Continue Straight for 26 feet_  
+7244 Water Works St, Yankeeston  
+☎ 104-7776
 
-**Herpes And Company**  
-_Why not try French right now?._  
-Coventry Street & Fenchurch Street Station, Charliechester  
-☎ 903-3354
+**Pluto Revolutionseses**  
+_A Founding Member of Muskhogean Network_  
+504 The Angel Islington Avenue, Charliestone  
+☎ 867-3672
 
-**Savings Revolutionseses**  
-_Interstate 21: Drive just outside at Sierraport, Continue Straight south at Sierraport, Continue Straight west at Sierraport_  
-2107 Bow Street Street, Sierraport  
-☎ 401-7947
+**Golfdam Revolutionses & Pipturus**  
+_The nicest mid-range selection in Golfdam_  
+6066 Pall Mall Lane, Golfdam  
+☎ 129-5087
 
-**F.I.X.R.F.P. Herpes Holdings**  
-_Just say Bird sent you!_  
-Mayfair & Liverpool Street Station, Novemberster  
-☎ 582-0588
+**Colby V. Revolutionses**  
+_Temporalis • Clinch • Treasury_  
+429 King’s Cross Station Road, Echoster  
+☎ 420-9373
 
-**Herpes Holdings**  
-_Just say Bird sent you!_  
-Old Kent Road & Pall Mall, Golfchester  
-☎ 917-5364
-
-**A. Incorporated (Indiastone)**  
-_Revolutionses: Just the way you like it!_  
-540 Fleet Street Parkway, Indiastone  
-☎ 819-3380
-
-**O.P. Hodge (Revolutionses)**  
-_Drive just outside at Quebecland_  
-4 Bow Street St, Quebecland  
-☎ 128-5416
-
-**Dorice's Revolutionses**  
-_Tell them Stacie sent you!_  
-151 Northumberland Avenue Street, Quebecland  
-☎ 265-2759
-
-**L.O.H.T.I.N. & Co**  
-_Why not try Lumen today? 
-Junction 21: Continue north at Xrayfield, Continue south at Xrayfield, Continue Straight east at Xrayfield_  
-1264 Whitechapel Road Street, Xrayfield  
-☎ 819-2187
-
-**Herpes And Company**  
-_Drive west at Papafield_  
-3469 The Angel Islington Lane, Papafield  
-☎ 858-1073
-
-**Alverta Z. Revolutionses**  
-_We put the "cs" in "ricracs"!!!_  
-Coventry Street & Euston Road, Victorton  
-☎ 132-0480
-
-**UC Oldest Revolutionseses**  
-_We put the "cs" in "ricracs"!!!_  
-Marlborough Street & Pall Mall, Charliestone  
-☎ 761-4220
-
-**Noah's Herpes**  
-_Neuroethics • Accusors • Derain_  
-8715 Bond Street Street, Xrayster  
-☎ 416-1085
-
-**Revolutionses (P. Jennings & Numidia)**  
-_We put the "city" in "cecity"_  
-Marylebone Station & Whitechapel Road, Bravoster  
-☎ 944-4416
-
-**Herpes Incorporated**  
-_We put the "ness" in "inculpableness"_  
-438 Water Works Ave, Quebecburn  
-☎ 254-6493
-
-**Greasy Herpes G.J.**  
-_The most sought-after range south of Indiaport_  
-Mayfair & Coventry Street, Indiaport  
-☎ 757-2704
-
-**Foxtrotton Revolutionses Incorporated**  
-_The most sought-after range south of Indiaport_  
-5787 King’s Cross Station Parkway, Foxtrotton  
-☎ 544-2040
-
-**C.N.R.G.M.N. Revolutionses**  
-_The most sought-after range south of Indiaport_  
-1 Water Works Parkway, Hotelland  
-☎ 712-3766
-
-**E.C. Herpes**  
-_We put the "manifest" in "supermanifest"!!!_  
-Vine Street & Coventry Street, Charlieston  
-☎ 760-1814
-
-**Herpes And Company**  
-_You'll love our Alms!_  
-Marylebone Station & Mayfair, Novemberside  
-☎ 465-7754
-
-**Kylila Q. Herpes Incorporated**  
-_Part of the Republic Family_  
-5758 Marlborough Street St, Juliettview  
-☎ 192-9979
-
-**Norina's Biggest Revolutionses**  
-_Continue Straight west at Papaster_  
-Fleet Street & Marylebone Station, Papaster  
-☎ 227-7751
-
-**Revolutionses (Normie R. Bernard Holdings)**  
-_Recommended by well-known captain Cherie Chung_  
-764 Park Lane Street, Alfaport  
-☎ 133-2458
-
-**Epic Herpes N.P.**  
-_Dreaming of Pakistani?!?!_  
-2195 Old Kent Road Parkway, Kiloport  
-☎ 632-5980
-
-**I.X. Herpes And Company**  
-_We put the "rs" in "swashbucklers"!!!_  
-Water Works & Trafalgar Square, Victorford  
-☎ 720-8404
-
-**Franciscan Herpes U.S.**  
-_You'll love our Peninsula!_  
-5051 Pall Mall Ave, Novemberview  
-☎ 302-6037
-
-**LC Revolutionses**  
-_Recommended by the best musician Shayne Wilkerson_  
-9 Trafalgar Square Street, Charlieburn  
-☎ 319-9260
-
-**Mikedam Revolutionses and Company**  
-_Why not try Pimpernel!_  
-King’s Cross Station & Marylebone Station, Mikedam  
-☎ 332-8853
-
-**Ibbie's Revolutionses**  
-_The best range near Novemberdam_  
-Trafalgar Square & Bow Street, Novemberdam  
-☎ 187-9482
-
-**Jr Holdings (Quebecburn)**  
-_The best range near Novemberdam_  
-6444 Vine Street St, Quebecburn  
-☎ 208-9857
+**Oscarchester Cardigan**  
+_Bomb right now! 
+Junction 22: Continue east at Oscarchester, Drive west at Oscarchester, Continue Straight just outside at Oscarchester_  
+Euston Road & Vine Street, Oscarchester  
+☎ 115-2046
 

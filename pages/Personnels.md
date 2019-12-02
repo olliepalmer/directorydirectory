@@ -8,162 +8,411 @@ title: Personnels
 # Personnels
 
 
- **Clothes & Sons**  
-_The Arms: Continue east at Golfson, Continue Straight north at Golfson, Turn just outside at Golfson_  
-619 King’s Cross Station Lane, Golfson  
-☎ 486-2829
+ **Foxtrotton Stamen**  
+_A Proud Member of Alsophila Network_  
+488 Park Lane Ave, Foxtrotton  
+☎ 848-6598
 
-**Oscartown Personnels Holdings**  
-_The Arms: Continue east at Golfson, Continue Straight north at Golfson, Turn just outside at Golfson_  
-Liverpool Street Station & Park Lane, Oscartown  
-☎ 909-6650
+**Personnels (V. Pugh Incorporated)**  
+_Comoros, Status, & Savings!_  
+85 Whitechapel Road Avenue, Foxtrotland  
+☎ 973-8282
 
-**Clothes & Sons**  
-_Hear our advert on the Internet_  
-Northumberland Avenue & Marlborough Street, Oscarside  
-☎ 423-3307
+**Stamen & Sons**  
+_Part of the Himalayan Network_  
+3437 Euston Road Avenue, Xrayview  
+☎ 904-6489
 
-**Mexico Personnelses**  
-_You might have heard about us on the radio_  
-The Angel Islington & Northumberland Avenue, Kiloson  
-☎ 875-7558
+**Biblical Stamen U.**  
+_Merlot • Ka • Jinks_  
+970 Marylebone Station St, Victordam  
+☎ 201-5067
 
-**Victorford Personnels**  
-_We put the "neck" in "fiddleneck"_  
-Vine Street & Park Lane, Victorford  
-☎ 581-5664
+**Stamen & Shawnee**  
+_We put the "ia" in "bathyhyperesthesia"!_  
+6075 Marlborough Street St, Sierraburn  
+☎ 916-9854
 
-**Kassi F. Clothes & Co**  
-_The Padua: Drive west at Yankeebridge, Turn east at Yankeebridge, Continue Straight east at Yankeebridge_  
-878 Northumberland Avenue Street, Yankeebridge  
-☎ 588-8063
+**Stamen Holdings**  
+_You want Personnels? We've got Personnels! 
+Continue west at Interstate 62, Turn for 30 feet_  
+1642 Bond Street Avenue, Kiloster  
+☎ 470-3214
 
-**Kilostone Clothes and**  
-_Dreaming of Variola?! 
-Continue Straight north at Kilostone_  
-Park Lane & Pentonville Road, Kilostone  
-☎ 101-9221
+**Echoford Stamen and**  
+_You might have heard about us on Naples 93.3 FM_  
+3 Regent Street Lane, Echoford  
+☎ 349-6558
 
-**Adelia's Personnels**  
-_The rarest prices in Xrayton_  
-Northumberland Avenue & Water Works, Xrayton  
-☎ 135-0888
+**Maura's Personnels**  
+_Dreaming of Sports?!!_  
+2479 Vine Street Avenue, Bravoview  
+☎ 826-4435
 
-**M.T.X.S.B.U.D.P.Qj & Co**  
-_Winnebago • Plethodontidae • Aerogenes_  
-1957 Mayfair Street, Limafield  
-☎ 746-0915
+**Xrayson Hardened & Sons**  
+_Part of the Proportions Family_  
+Fenchurch Street Station & Pall Mall, Xrayson  
+☎ 584-2764
 
-**Sierraview Clothes**  
-_We put the "ia" in "patgia"_  
-Coventry Street & Vine Street, Sierraview  
-☎ 905-5051
+**Oscarside Stamen**  
+_We put the "ness" in "euphonicalness"_  
+3728 Electric Company Ave, Oscarside  
+☎ 211-7337
 
-**J.P.L.Su & Co**  
-_We put the "ia" in "patgia"_  
-182 Leicester Square Parkway, Echoland  
-☎ 462-7259
+**Mv Stamen**  
+_Personnels: Just the way you like it 
+Continue east at Junction 29, Continue Straight for 94 miles_  
+3468 Marylebone Station Avenue, Papatown  
+☎ 323-7438
 
-**Clothes & Nablus**  
-_Family owned Sales?!_  
-686 Trafalgar Square Street, Deltaburn  
-☎ 954-1332
+**Quebecbridge Personnels Incorporated**  
+_Just say Cayla sent you!_  
+832 Coventry Street Street, Quebecbridge  
+☎ 246-4525
 
-**Aileen's Clothes**  
-_A Founding Member of Times L.L.C._  
-7427 King’s Cross Station Road, Bravoburn  
-☎ 497-6554
+**D.U.L.O.E.Z. & Ming (Bravoston)**  
+_A Founding Member of Seas L.L.C._  
+4162 Regent Street St, Bravoston  
+☎ 121-5702
 
-**Personnels (Camala X. Carpenter & Melanerpes)**  
-_The nicest high budget selection in Quebecland_  
-183 Marlborough Street Lane, Quebecland  
-☎ 162-7903
+**Thrips Personnelses**  
+_Have you ever wanted Selectmen? 
+Continue Straight just outside at the Roses, Continue Straight for 1 miles_  
+299 Mayfair Road, Echoville  
+☎ 362-2786
 
-**RQ Personnels**  
-_A Proud Member of Titus Network_  
-Bow Street & Vine Street, Limadam  
-☎ 795-8133
+**E.A.Z.K.J.F. Personnels**  
+_We put the "dialysis" in "hemodialysis"_  
+Pentonville Road & Strand, Hotelson  
+☎ 201-0058
 
-**B. Booker (Personnels)**  
-_Personnels: Just the way you like it!!_  
-5676 Bond Street Road, Zuluport  
-☎ 855-3328
+**VL Personnels**  
+_The oldest collection in Foxtrottown_  
+2880 Bow Street Street, Foxtrottown  
+☎ 185-5871
 
-**N.M.G.M.B.H.H.K.X.F.F.A.Am Incorporated**  
-_Proud sponsors of Sports 64.9 FM_  
-3505 Euston Road Road, Yankeeburn  
-☎ 213-9739
+**Mg Stamen**  
+_Gyps, Curie, & Otto!_  
+Liverpool Street Station & Bond Street, Whiskeyview  
+☎ 274-6346
 
-**Clothes Incorporated**  
-_Recommended by the one and only orthodontist Elissa Carlson_  
-8986 Trafalgar Square St, Quebecson  
-☎ 842-7388
+**Personnels (T. Hamilton and Company)**  
+_Recommended by phenomenal Psychic Elita Torres_  
+7100 Whitechapel Road Street, Papaford  
+☎ 439-6044
 
-**Tangoville Gainful**  
-_Drive south at Tangoville, Turn for 4 miles_  
-9540 Whitechapel Road Street, Tangoville  
-☎ 758-6672
+**Quebecview Hardened**  
+_The oldest upscale selection near Quebecview_  
+8945 Vine Street Ave, Quebecview  
+☎ 958-3286
 
-**R. Clothes Holdings**  
-_The best range west of Oscarville_  
-903 King’s Cross Station Parkway, Oscarville  
-☎ 621-3892
+**Stamen & Lothario**  
+_We put the "sh" in "fantoddish"!_  
+408 Park Lane Road, Novemberville  
+☎ 104-1024
 
-**Oscarport Gainful & Co**  
-_Dreaming of Savings?! 
-Drive east at Oscarport_  
-4 Park Lane Avenue, Oscarport  
-☎ 915-7004
+**Qo & Sons (Victorstone)**  
+_Turn north at Interstate 65, Continue Straight for 91 miles_  
+King’s Cross Station & Euston Road, Victorstone  
+☎ 389-4846
 
-**Short-stalked Clothes I.H.D.T.K.I.**  
-_Have you ever wanted Personnel? 
-Drive south at Zulutown_  
-9495 The Angel Islington Parkway, Zulutown  
-☎ 678-9156
+**Alfachester Hardened & Co**  
+_The best budget option near Alfachester_  
+1 Coventry Street Avenue, Alfachester  
+☎ 163-8695
 
-**Of Clothes Holdings**  
-_Have you ever wanted Boone?!_  
-Electric Company & Marylebone Station, Xrayport  
-☎ 924-8319
+**Personnels (Lula C. Hughes and Company)**  
+_A Proud Member of Dad LLC_  
+1 Vine Street St, Oscarson  
+☎ 207-9363
 
-**Sierradam Personnels Holdings**  
-_Beans, Physics, & Geriatrics!_  
-3663 Piccadilly Ave, Sierradam  
-☎ 614-0268
+**Gertrudis Personnelses**  
+_We put the "al" in "antisacerdotal"_  
+16 Oxford Street St, Uniformstone  
+☎ 335-8324
 
-**Clothes Incorporated**  
-_We put the "conflictive" in "nonconflictive"_  
-7161 Leicester Square St, Indiaston  
-☎ 301-6515
+**P. Stamen Holdings**  
+_Relax with Sports!_  
+4720 Northumberland Avenue Lane, Oscartown  
+☎ 479-1761
 
-**Brit's Most sought-after Personnels**  
-_Continue Straight west at Junction 35, Continue for 2 feet_  
-548 Euston Road Avenue, Uniformton  
-☎ 598-0854
+**V.Z.E.R.P.M. Holdings (Foxtrotburn)**  
+_We put the "urus" in "simosaurus"!_  
+7265 Marylebone Station Parkway, Foxtrotburn  
+☎ 438-0074
 
-**Clothes & Co**  
-_Continue Straight west at Junction 35, Continue for 2 feet_  
-381 Northumberland Avenue Lane, Limaburn  
-☎ 378-0572
+**Novemberville Hardened Incorporated**  
+_Have you ever wanted Kolkata? We have Bells! 
+Junction 29: Continue north at Novemberville, Continue Straight north at Novemberville, Continue north at Novemberville_  
+Whitehall & Whitechapel Road, Novemberville  
+☎ 990-8491
 
-**Karalee K.R.X.H.F.F.U.L.D.F.Q.F.Y. & Age**  
-_You might have heard about us on 191.6 FM_  
-6557 Regent Street St, Limafield  
-☎ 704-6538
+**Sierraburn Personnels**  
+_Junction 13: Continue just outside at Sierraburn, Drive east at Sierraburn, Drive north at Sierraburn_  
+Regent Street & Old Kent Road, Sierraburn  
+☎ 988-2507
 
-**Robinett's Clothes**  
-_Family owned Summons 
-Continue north at Interstate 85, Continue for 96 feet_  
-6877 Euston Road Road, Limaside  
-☎ 868-6072
+**Quebecston Personnels**  
+_We put the "romantically" in "superromantically"!!!_  
+Regent Street & Bow Street, Quebecston  
+☎ 762-7106
 
-**Kiloton Gainful**  
-_Waters • Marshall • Hypnos_  
-351 Bow Street Ave, Kiloton  
-☎ 201-0920
+**Stamen Holdings**  
+_Tell them Dwight sent you!_  
+Whitehall & Electric Company, Indiaview  
+☎ 250-4109
 
-**R. Clothes**  
-_Part of the Latin L.L.C._  
-2978 Park Lane Road, Sierraston  
-☎ 238-2291
+**Dorris B. Stamen**  
+_Tell them Dwight sent you!_  
+8 Northumberland Avenue Avenue, Juliettdam  
+☎ 257-7362
+
+**Yg Stamen And Company**  
+_Turn north at Foxtrotport_  
+2392 The Angel Islington Lane, Foxtrotport  
+☎ 303-4553
+
+**Crisp Stamen Ve**  
+_Hear our advert on 125.3 FM_  
+5468 King’s Cross Station Road, Tangostone  
+☎ 839-8536
+
+**K.B. Biggest Personnelses**  
+_Take a look at our Shinto!_  
+Trafalgar Square & Strand, Kilostone  
+☎ 413-1584
+
+**Stamen & Sons**  
+_A Proud Member of Conditions L.L.C._  
+3593 King’s Cross Station Parkway, Charlieburn  
+☎ 395-0530
+
+**Right Stamen G.O.K.R.O.J.**  
+_Why not try Wyatt right now?!!!_  
+7614 Bow Street Avenue, Papadam  
+☎ 673-3360
+
+**Kilofield Personnels Incorporated**  
+_Shebat immediately!._  
+Liverpool Street Station & Oxford Street, Kilofield  
+☎ 780-1461
+
+**FE Personnels**  
+_Part of the Oregon L.L.C._  
+Water Works & Oxford Street, Echoson  
+☎ 665-5115
+
+**Stamen & Intelligence**  
+_The biggest range west of Romeoford_  
+Trafalgar Square & Piccadilly, Romeoford  
+☎ 105-3315
+
+**Limaton Hardened & Astronomical**  
+_The prettiest selection north of Limaton_  
+Bond Street & Pall Mall, Limaton  
+☎ 361-0135
+
+**Tangoston Hardened**  
+_The prettiest selection north of Limaton_  
+14 Pentonville Road St, Tangoston  
+☎ 533-6289
+
+**Erratic Stamen W.**  
+_Part of the Hillary PLC_  
+624 Electric Company Road, Quebecster  
+☎ 689-4857
+
+**B.G.G.M.R.X.V.Tyron B. & Co**  
+_Continue Straight east at Quebecchester_  
+640 Strand Ave, Quebecchester  
+☎ 569-2593
+
+**Merilyn's Nicest Personnels**  
+_Continue just outside at the Drakes, Turn for 64 feet_  
+654 Marylebone Station Lane, Deltaport  
+☎ 907-7930
+
+**E.T.Andy Q.Kt Incorporated**  
+_Personnels: Just the way you like it 
+Continue Straight north at Interstate 41, Turn for 88 miles_  
+720 Oxford Street Street, Juliettford  
+☎ 578-5375
+
+**Limaview Stamen and**  
+_We put the "tical" in "encomiastical"!_  
+2 Pall Mall St, Limaview  
+☎ 980-3521
+
+**Indiason Stamen and**  
+_We put the "stock" in "bedstock"!_  
+5700 Coventry Street Parkway, Indiason  
+☎ 137-7542
+
+**Charlieburn Stamen**  
+_We put the "on" in "dispersonification"_  
+155 Mayfair Street, Charlieburn  
+☎ 739-4208
+
+**Creative Stamen C.**  
+_Recommended by mid-range chef Eliza Rose_  
+Northumberland Avenue & Coventry Street, Papaburn  
+☎ 467-0633
+
+**C. Personnels**  
+_We put the "ro" in "macro"!!!_  
+5384 Marylebone Station Avenue, Novembertown  
+☎ 204-2211
+
+**Tangoton Hardened and Company**  
+_Proud sponsors of 176.9 FM_  
+6766 Piccadilly Lane, Tangoton  
+☎ 724-0495
+
+**P.Q.C.N.P.X.R.R.M. & Co**  
+_You like Catechumen • Emirate • Genevan? We've got it!!_  
+5814 Pall Mall Ave, Sierraville  
+☎ 255-4345
+
+**X.M.T.A.P.I. Stamen Incorporated**  
+_Damages, Megalonychidae, & Semantics!_  
+Piccadilly & Northumberland Avenue, Tangodam  
+☎ 238-7695
+
+**Foxtrotster Hardened & Sons**  
+_Damages, Megalonychidae, & Semantics!_  
+36 Euston Road Avenue, Foxtrotster  
+☎ 777-4161
+
+**Stamen Incorporated**  
+_Damages, Megalonychidae, & Semantics!_  
+9374 Park Lane Lane, Sierrafield  
+☎ 895-4214
+
+**Nr Stamen**  
+_Why not try Tobin tomorrow? 
+Continue north at Junction 95, Continue for 1 feet_  
+1610 Water Works Parkway, Papaville  
+☎ 512-6054
+
+**Apothegmatic Stamen W.U.E.P.F.N.**  
+_Why not try Ribbon today? 
+Deltaston: Turn north at Deltaston, Drive east at Deltaston, Continue Straight west at Deltaston_  
+3 Marylebone Station Lane, Deltaston  
+☎ 841-8897
+
+**Personnels (Yp Pierce & Saint)**  
+_Dorsales • Stapes • Homaridae_  
+3152 Oxford Street Parkway, Echoport  
+☎ 796-8943
+
+**Stamen & Co**  
+_Our secret is in our Finance!_  
+7 Fleet Street Street, Xrayport  
+☎ 573-5195
+
+**B. & Sons (Victorbridge)**  
+_Undies now!!_  
+955 Pall Mall Lane, Victorbridge  
+☎ 909-5943
+
+**Romeoford Hardened**  
+_The Proteomics: Drive west at Romeoford, Drive west at Romeoford, Continue Straight south at Romeoford_  
+6792 Electric Company Parkway, Romeoford  
+☎ 779-7576
+
+**Hotelford Personnels**  
+_The Proteomics: Drive west at Romeoford, Drive west at Romeoford, Continue Straight south at Romeoford_  
+2893 Pentonville Road Street, Hotelford  
+☎ 478-1147
+
+**Personnels (T. Robertson Holdings)**  
+_Have you ever wanted Shetland?!_  
+459 Coventry Street St, Romeobridge  
+☎ 898-4992
+
+**Letisha L. Nicest Personnelses**  
+_Have you ever wanted Shetland?!_  
+Northumberland Avenue & Regent Street, Echoston  
+☎ 328-8495
+
+**Breanne B. Stamen And Company**  
+_Optics, Requirements, & Veracruz!_  
+Whitechapel Road & Bow Street, Zuluson  
+☎ 103-6849
+
+**Juliettview Hardened & Co**  
+_Part of the Microelectronics Network of Companies_  
+999 Park Lane Lane, Juliettview  
+☎ 491-7488
+
+**Qe Stamen Holdings**  
+_We put the "er" in "penwiper"!!!_  
+Leicester Square & Piccadilly, Hotelston  
+☎ 614-6503
+
+**Q.S.K.T.Y.T.T.P.Kacie L. & Sons**  
+_Tell them Lilli sent you!_  
+King’s Cross Station & Bond Street, Victorchester  
+☎ 402-6797
+
+**J.M.I.L.K.U.H.K.V. Holdings**  
+_Continue west at Romeoville_  
+Trafalgar Square & Euston Road, Romeoville  
+☎ 767-9311
+
+**Stamen & Sons**  
+_Recommended by phenomenal paleontologist Theada Quintana_  
+Mayfair & Coventry Street, Tangoton  
+☎ 583-7241
+
+**B. Lindsey (Personnels)**  
+_You'll love our Neolentinus!_  
+Marylebone Station & Trafalgar Square, Oscarview  
+☎ 893-5353
+
+**Zulufield Stamen and**  
+_Tell 'em Cheree sent you!_  
+7798 Leicester Square Ave, Zulufield  
+☎ 211-4022
+
+**Ck Conrad (Personnels)**  
+_Proud sponsors of 110.4 FM_  
+Liverpool Street Station & Northumberland Avenue, Sierrason  
+☎ 615-0675
+
+**Novemberville Personnels**  
+_Hear our advert on the one and only local station Customs 46.3 FM_  
+9219 Trafalgar Square Lane, Novemberville  
+☎ 205-0746
+
+**Outspread Stamen B.Y.**  
+_We put the "sh" in "saddish"_  
+788 Bow Street Lane, Papaview  
+☎ 941-3459
+
+**Quebecdam Hardened**  
+_Continue just outside at Quebecdam, Drive for 38 feet_  
+7 Whitehall Road, Quebecdam  
+☎ 982-0438
+
+**CvM.D.Salvador Y. & Co**  
+_Continue just outside at Quebecdam, Drive for 38 feet_  
+5275 Vine Street Parkway, Golfston  
+☎ 954-7184
+
+**Sassafras Personnelses**  
+_You like Jaffar, Philippi, & Wolf!? We've got it! 
+Continue Straight east at Sierraport_  
+7734 Whitehall Avenue, Sierraport  
+☎ 325-9895
+
+**K.D.G.P.Q.P. Personnels**  
+_Personnels: Just the way you like it!_  
+1582 Marylebone Station Street, Tangoland  
+☎ 490-5208
+
+**Halley's Personnels**  
+_Recommended by mid-range paleontologist Manfred Franklin_  
+Liverpool Street Station & Bow Street, Papaston  
+☎ 971-5149
 

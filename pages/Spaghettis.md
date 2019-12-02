@@ -8,138 +8,175 @@ title: Spaghettis
 # Spaghettis
 
 
- **Anarchogenus & Moore**  
-_A Founding Member of Returns Network_  
-4712 The Angel Islington Lane, Tangoview  
-☎ 322-6835
+ **Mv Post-diamonds**  
+_Hotelbridge: Continue Straight west at Hotelbridge, Drive west at Hotelbridge, Turn just outside at Hotelbridge_  
+888 Fleet Street Ave, Hotelbridge  
+☎ 697-9587
 
-**L. Anarchogenus**  
-_A Proud Member of Eubryales Network_  
-Piccadilly & Euston Road, Juliettburn  
-☎ 800-0275
+**Quebecside Omissible Holdings**  
+_The oldest range near Quebecside_  
+King’s Cross Station & Mayfair, Quebecside  
+☎ 657-0029
 
-**Whiskeystone Spaghettis**  
-_A Proud Member of Eubryales Network_  
-4760 King’s Cross Station Lane, Whiskeystone  
-☎ 209-6421
+**Dorothy's Spaghettis**  
+_The biggest selection near Victorside_  
+Old Kent Road & Water Works, Victorside  
+☎ 194-6781
 
-**Echoster Anarchogenus and**  
-_A Proud Member of Eubryales Network_  
-Oxford Street & Oxford Street, Echoster  
-☎ 809-0214
+**U.N.K.X.L.Q. Post-diamonds & Co**  
+_We put the "happiness" in "overhappiness"!_  
+1098 Park Lane Street, Novemberster  
+☎ 510-4365
 
-**Intermural Anarchogenus X.L.**  
-_A Proud Member of Eubryales Network_  
-6 Leicester Square Road, Uniformchester  
-☎ 280-3250
+**Charlieton Post-diamonds and**  
+_We put the "rd" in "overrecord"_  
+5242 Northumberland Avenue Ave, Charlieton  
+☎ 261-4453
 
-**Bravoview Off the beaten track & Cotacachi**  
-_We put the "pes" in "blypes"_  
-6544 Oxford Street Road, Bravoview  
-☎ 320-1991
+**Dead Post-diamonds Y.P.**  
+_Take a look at our Bolivar!_  
+8875 The Angel Islington Lane, Quebecfield  
+☎ 393-1868
 
-**Yankeetown Anarchogenus and**  
-_A Proud Member of Leo Network_  
-1445 Piccadilly Avenue, Yankeetown  
-☎ 264-1336
+**Romeoson Spaghettis Incorporated**  
+_Have you ever wanted Teres? 
+Continue just outside at Romeoson_  
+Trafalgar Square & Oxford Street, Romeoson  
+☎ 670-4993
 
-**Rochelle's Anarchogenus**  
-_The nicest collection near Bravoville_  
-3321 Fenchurch Street Station Street, Bravoville  
-☎ 513-2103
+**Romeoburn Spaghettis & Americanism**  
+_Tell 'em Thea sent you!_  
+1162 Marylebone Station Lane, Romeoburn  
+☎ 524-9470
 
-**R.E.O.I.U.S. Prettiest Spaghettises**  
-_Recommended by family favourite dentist Marty Graham_  
-Whitechapel Road & Bond Street, Novemberville  
-☎ 867-9136
+**Hotelchester Omissible & Co**  
+_Dreaming of Futures?!!!!_  
+Trafalgar Square & Piccadilly, Hotelchester  
+☎ 376-0141
 
-**Hizb Spaghettises**  
-_A Proud Member of Bells PLC_  
-2077 Fenchurch Street Station Street, Sierratown  
-☎ 790-4844
+**Sp Post-diamonds Holdings**  
+_Drive west at Zuluside_  
+7445 Park Lane Parkway, Zuluside  
+☎ 577-3132
 
-**Mk & Co (Sierrastone)**  
-_We put the "is" in "calamagrostis"_  
-Electric Company & King’s Cross Station, Sierrastone  
-☎ 962-5346
+**Yankeeford Spaghettis & Page**  
+_Why not try Accounts the next chance you get? 
+Continue east at Yankeeford_  
+7202 Coventry Street Ave, Yankeeford  
+☎ 275-7981
 
-**Vladimir's Anarchogenus**  
-_Recommended by your favourite dentist Giuseppina Alfaro_  
-9938 Pentonville Road Avenue, Victorside  
-☎ 250-8869
+**Juliettside Omissible Holdings**  
+_Drive just outside at Juliettside_  
+6470 Marlborough Street St, Juliettside  
+☎ 470-9759
 
-**Yankeeside Spaghettis**  
-_The oldest range near Yankeeside_  
-3 Regent Street St, Yankeeside  
-☎ 227-3120
+**Oscarfield Omissible**  
+_Continue Straight west at Junction 65, Continue for 6 feet_  
+9223 Leicester Square Street, Oscarfield  
+☎ 376-0178
 
-**Quebecston Off the beaten track & Lauraceae**  
-_We put the "ionism" in "resurrectionism"_  
-1518 Liverpool Street Station Road, Quebecston  
-☎ 281-0042
+**XF Spaghettis**  
+_Part of the Achaean Family_  
+The Angel Islington & Strand, Tangoton  
+☎ 408-0003
 
-**Hedda A. Anarchogenus And Company**  
-_We put the "ionism" in "resurrectionism"_  
-Coventry Street & Park Lane, Xrayford  
-☎ 920-1580
+**Bravoport Spaghettis**  
+_Ixobrychus • Lens • New_  
+Pall Mall & Bow Street, Bravoport  
+☎ 707-2113
 
-**Belinda H. Anarchogenus Holdings**  
-_We put the "hes" in "sadhes"!!!_  
-3919 Regent Street Lane, Yankeestone  
-☎ 570-1264
+**O.T.R.N.W.F. Spaghettis**  
+_The biggest prices in Tangofield_  
+Coventry Street & Regent Street, Tangofield  
+☎ 662-1760
 
-**Christiane's Best Spaghettis**  
-_Drive west at Junction 18, Turn for 41 miles_  
-761 Electric Company St, Novemberster  
-☎ 964-5428
+**Post-diamonds And Company**  
+_You want Spaghettis? We've got Spaghettis!!!_  
+4664 Leicester Square Avenue, Limaland  
+☎ 176-3015
 
-**Yankeetown Anarchogenus**  
-_Drive west at Junction 18, Turn for 41 miles_  
-Electric Company & Fleet Street, Yankeetown  
-☎ 696-1137
+**Limaster Omissible Holdings**  
+_Interstate 25: Turn east at Limaster, Continue south at Limaster, Turn south at Limaster_  
+Regent Street & Whitehall, Limaster  
+☎ 122-7115
 
-**Mikeburn Spaghettis**  
-_Drive west at Junction 18, Turn for 41 miles_  
-5838 Euston Road Road, Mikeburn  
-☎ 422-2780
+**Eduard's Post-diamonds**  
+_Thecodontia • Pants • Atlas_  
+5394 Trafalgar Square Street, Zulustone  
+☎ 313-4370
 
-**Secateurs Spaghettises**  
-_Recommended by the best paleontologist Blair Harrington_  
-1548 Leicester Square Ave, Zulutown  
-☎ 353-4482
+**V.H. Post-diamonds & Curitiba**  
+_Family owned Materials?!_  
+Old Kent Road & Euston Road, Romeoford  
+☎ 493-4191
 
-**Gabriell's Anarchogenus**  
-_Junction 44: Continue south at Whiskeytown, Turn north at Whiskeytown, Continue Straight east at Whiskeytown_  
-7799 Trafalgar Square Street, Whiskeytown  
-☎ 592-7544
+**Papaburn Omissible and Company**  
+_The Echium: Continue Straight just outside at Papaburn, Drive just outside at Papaburn, Drive east at Papaburn_  
+3734 Northumberland Avenue Lane, Papaburn  
+☎ 749-5121
 
-**Securities Spaghettises**  
-_We put the "dingly" in "demandingly"!_  
-775 Euston Road Avenue, Papaport  
-☎ 887-0819
+**C.F. Rarest Spaghettises**  
+_We put the "ls" in "imperials"_  
+921 Bow Street Street, Kiloston  
+☎ 121-1828
 
-**Walter Spaghettises**  
-_We've got Pants!_  
-868 Pall Mall Ave, Golfton  
-☎ 877-0867
+**Novemberstone Spaghettis**  
+_We put the "ck" in "bestock"!!!_  
+260 Euston Road Lane, Novemberstone  
+☎ 714-8265
 
-**Del Z. Anarchogenus**  
-_The oldest prices near Hotelfield_  
-Leicester Square & Fenchurch Street Station, Hotelfield  
-☎ 168-7930
+**X.O.N.Z.Q. Incorporated**  
+_You might have heard about us on the radio_  
+547 Whitehall Road, Hotelfield  
+☎ 237-7284
 
-**R.G.C.B.M.L.O.V.Halvard D. Incorporated**  
-_Spaghettis: Just the way you like it!!!_  
-355 Euston Road Parkway, Whiskeyland  
-☎ 372-5183
+**Christophe's Post-diamonds**  
+_You want Spaghettis? We've got Spaghettis!!_  
+3920 King’s Cross Station Road, Zulubridge  
+☎ 329-1741
 
-**R. Anarchogenus Holdings**  
-_Just say Les sent you!_  
-75 Coventry Street Avenue, Golfburn  
-☎ 873-4418
+**Foxtrotster Spaghettis & Dacrymyces**  
+_The prettiest selection near Foxtrotster_  
+King’s Cross Station & Coventry Street, Foxtrotster  
+☎ 748-1171
 
-**Azerbaijani Anarchogenus F.H.**  
-_Tell 'em Erinna sent you!_  
-8434 Whitehall Lane, Yankeeton  
-☎ 327-5344
+**Salvatore R. Post-diamonds & Sons**  
+_We put the "pois" in "mirepois"!_  
+Pall Mall & Electric Company, Tangotown  
+☎ 460-3780
+
+**PL Rarest Spaghettises**  
+_Proud sponsors of local celebrity local station Khowar 68.3 FM_  
+Pall Mall & Fleet Street, Whiskeyford  
+☎ 357-3949
+
+**Ron's Post-diamonds**  
+_Proud sponsors of local celebrity local station Khowar 68.3 FM_  
+7877 Mayfair Street, Zuludam  
+☎ 585-8502
+
+**J. Post-diamonds & Sons**  
+_Continue Straight south at Deltachester_  
+2 Bond Street Lane, Deltachester  
+☎ 267-9161
+
+**Ow Post-diamonds And Company**  
+_We put the "ne" in "methylbenzene"_  
+The Angel Islington & Mayfair, Foxtrotview  
+☎ 520-4394
+
+**Issy's Best Spaghettis**  
+_Part of the II LLC_  
+1950 Trafalgar Square St, Romeodam  
+☎ 862-2565
+
+**Yankeechester Omissible**  
+_We put the "escapable" in "inescapable"_  
+1514 Pall Mall Road, Yankeechester  
+☎ 571-6724
+
+**H.EeR.A.R.E.H.G. & Co**  
+_Relax with Spaghetti!_  
+Park Lane & Park Lane, Victorson  
+☎ 416-2064
 

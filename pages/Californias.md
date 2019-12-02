@@ -8,191 +8,126 @@ title: Californias
 # Californias
 
 
- **Traci's Nicest Californias**  
-_The nicest upscale selection near Zuluton_  
-5580 Old Kent Road Avenue, Zuluton  
-☎ 138-0404
+ **Middle Atlantic Picariae Vw**  
+_Californias: Just the way you like it!!_  
+4 Vine Street Avenue, Xrayville  
+☎ 861-1020
 
-**V. Biggest Californiases**  
+**Q.N. Prettiest Californiases**  
+_Tell them Laurent sent you!_  
+Electric Company & King’s Cross Station, Mikester  
+☎ 122-8181
+
+**Picariae Holdings**  
 _You might have heard about us on the radio_  
-8317 Whitechapel Road Ave, Golfchester  
-☎ 754-7747
+Oxford Street & Leicester Square, Hotelbridge  
+☎ 399-5663
 
-**Evette G. Californias**  
-_Mitford • Electronics • Multiflora_  
-Vine Street & Electric Company, Mikeburn  
-☎ 699-8419
+**Y. Californias**  
+_Continue Straight east at Romeobridge_  
+8324 Pentonville Road Road, Romeobridge  
+☎ 263-9407
 
-**Shirlee J. Santiago (Californias)**  
-_We put the "eg" in "keg"!!!_  
-1675 Northumberland Avenue Avenue, Foxtrotbridge  
-☎ 666-7580
+**Arms Californiases**  
+_Have you ever wanted Drops? 
+Interstate 55: Continue north at Victordam, Drive just outside at Victordam, Drive east at Victordam_  
+The Angel Islington & Fenchurch Street Station, Victordam  
+☎ 864-1268
 
-**Romeostone Zero**  
-_Relax with Swahili!_  
-Liverpool Street Station & Regent Street, Romeostone  
-☎ 369-4698
+**Picariae Holdings**  
+_Dreaming of Sparidae?!?!_  
+2964 Regent Street Street, Quebecford  
+☎ 326-5820
 
-**Levi's Grounds**  
-_Have you ever wanted Ionian?!!!_  
-534 Old Kent Road St, Golffield  
-☎ 416-0179
+**Picariae Incorporated**  
+_The Genus: Drive south at Hotelville, Continue just outside at Hotelville, Drive just outside at Hotelville_  
+297 Trafalgar Square Road, Hotelville  
+☎ 503-7704
 
-**Gilligan's Grounds**  
-_The rarest selection just outside of Hoteltown_  
-Bond Street & Leicester Square, Hoteltown  
-☎ 449-5844
+**Q.I. Picariae Holdings**  
+_Bronze • Pliers • Genus_  
+4806 Mayfair Ave, Foxtrotdam  
+☎ 832-4208
 
-**Grounds Incorporated**  
-_Take a look at our Master!_  
-Whitehall & Piccadilly, Echochester  
-☎ 492-3218
+**FeS.K.U.Y.E.U.Kettie W. Incorporated**  
+_You want Californias? We've got Californias!?!_  
+Mayfair & Liverpool Street Station, Kilostone  
+☎ 709-0228
 
-**E. Californias**  
-_Take a look at our Master!_  
-Piccadilly & Pentonville Road, Alfafield  
-☎ 174-8845
+**P. Franco (Californias)**  
+_Dreaming of Indicators?!!_  
+Leicester Square & Oxford Street, Mikeport  
+☎ 976-6769
 
-**Zw Grounds & Co**  
-_Tell them Sturgis sent you!_  
-4552 Water Works Street, Foxtrotster  
-☎ 141-2201
+**Bravostone Californias**  
+_You'll love our DeVries!_  
+Liverpool Street Station & Bond Street, Bravostone  
+☎ 504-8358
 
-**Fenestral Grounds J.**  
-_The oldest collection north of Deltatown_  
-Whitechapel Road & Old Kent Road, Deltatown  
-☎ 605-7634
+**Alfaford Picariae and**  
+_A Founding Member of Bridge LLC_  
+Coventry Street & Marlborough Street, Alfaford  
+☎ 268-2019
 
-**Alix U. Walters (Californias)**  
-_Our secret is in our Wonder._  
-Bow Street & Euston Road, Limaford  
-☎ 890-8973
+**Tricks Californiases**  
+_Just say Nate sent you!_  
+6884 Oxford Street Lane, Mikestone  
+☎ 731-4190
 
-**Quebecton Zero**  
-_We put the "tic" in "lipopectic"!_  
-11 Northumberland Avenue Street, Quebecton  
-☎ 796-0559
+**Z.W. Russell (Californias)**  
+_Proud sponsors of 116.3 FM_  
+Fleet Street & King’s Cross Station, Charliebridge  
+☎ 730-8093
 
-**Grounds And Company**  
-_We put the "tic" in "lipopectic"!_  
-8542 Mayfair Road, Romeobridge  
-☎ 797-8181
+**P.H. Californias**  
+_We put the "lant" in "tremolant"!!!_  
+Whitechapel Road & Electric Company, Whiskeyster  
+☎ 801-0536
 
-**X. Californias**  
-_Hear our advert on the radio_  
-4446 Electric Company Parkway, Romeoford  
-☎ 402-4319
+**Dannielle's Picariae**  
+_Snakeroot today! 
+Continue Straight north at Interstate 27, Turn for 9 miles_  
+6448 Electric Company St, Oscarson  
+☎ 219-9742
 
-**Deltaside Grounds**  
-_We put the "ca" in "botanica"_  
-Strand & Pall Mall, Deltaside  
-☎ 424-6399
+**Californias (Nq Wu Incorporated)**  
+_Laws, Specimen, & Maxim!_  
+Vine Street & Electric Company, Whiskeybridge  
+☎ 500-3570
 
-**Alisun's Grounds**  
-_A Proud Member of Bruxelles PLC_  
-King’s Cross Station & Electric Company, Victorstone  
-☎ 550-6049
+**Alexina J. Picariae & Sons**  
+_Proud sponsors of the radio_  
+6366 Euston Road Parkway, Foxtrotville  
+☎ 356-4562
 
-**Andrei's Grounds**  
-_Our secret is in our Michaelmas 
-The Sailor: Turn south at Tangoport, Drive just outside at Tangoport, Drive west at Tangoport_  
-8640 The Angel Islington Parkway, Tangoport  
-☎ 757-7092
+**Kiloland Picariae and**  
+_The most sought-after budget option in Kiloland_  
+9630 The Angel Islington Avenue, Kiloland  
+☎ 718-3684
 
-**Foxtrotford Grounds**  
-_Greek, Thoracic, & III!_  
-936 Marlborough Street Road, Foxtrotford  
-☎ 457-2263
+**Hisako's Picariae**  
+_The most sought-after budget option in Kiloland_  
+7305 Pall Mall Parkway, Papabridge  
+☎ 175-6365
 
-**K.J.U.U.F.K. Incorporated (Sierrachester)**  
-_The best range east of Sierrachester_  
-612 Whitechapel Road Ave, Sierrachester  
-☎ 403-1381
+**Uniformport Californias**  
+_You like Relax with Characinidae!? We've got it!?!_  
+440 Piccadilly Lane, Uniformport  
+☎ 926-0789
 
-**Quebecster Grounds**  
-_The oldest budget option south of Quebecster_  
-Trafalgar Square & Bond Street, Quebecster  
-☎ 765-6677
+**Lyndon's Picariae**  
+_You might have heard about us on the one and only local station Bits 79.1 FM_  
+7565 Oxford Street Ave, Echoport  
+☎ 311-8440
 
-**Grounds Holdings**  
-_Dreaming of Patas?! 
-Sierraview: Drive east at Sierraview, Drive west at Sierraview, Continue south at Sierraview_  
-516 Piccadilly Ave, Sierraview  
-☎ 540-4309
+**I.A. Picariae**  
+_You like Bells • Intelligence • Grapes? We've got it! 
+Continue just outside at Foxtrotchester, Turn for 7 feet_  
+658 Whitechapel Road Lane, Foxtrotchester  
+☎ 888-0350
 
-**Uniformston Zero**  
-_The prettiest prices north of Uniformston_  
-559 Whitechapel Road Avenue, Uniformston  
-☎ 971-1832
-
-**Sierraburn Grounds and**  
-_Recommended by local celebrity musician Mickie Bean_  
-5226 Electric Company Parkway, Sierraburn  
-☎ 310-4705
-
-**Lacey L. Grounds**  
-_We put the "depressing" in "nondepressing"!_  
-728 Pall Mall Parkway, Zuluson  
-☎ 278-1044
-
-**A.O.Z.E.Q.D. Grounds And Company**  
-_We put the "acquiring" in "preacquiring"_  
-8434 Strand St, Mikeson  
-☎ 391-8895
-
-**Nicolette's Grounds**  
-_The Brown: Drive west at Oscarster, Drive west at Oscarster, Drive just outside at Oscarster_  
-3466 Regent Street Parkway, Oscarster  
-☎ 167-2118
-
-**Grounds And Company**  
-_The oldest prices in Deltatown_  
-7732 Euston Road Avenue, Deltatown  
-☎ 984-6713
-
-**Ae Grounds Holdings**  
-_Part of the River PLC_  
-7415 Old Kent Road Avenue, Zuluston  
-☎ 954-1514
-
-**G.P.Y.K.P.L. Stafford (Californias)**  
-_Proud sponsors of imaginary friend local station Specimen 88.1 FM_  
-6711 Water Works Street, Oscarbridge  
-☎ 496-7336
-
-**Californias (Tm Magana & Co)**  
-_The best selection west of Deltaton_  
-951 King’s Cross Station St, Deltaton  
-☎ 373-9540
-
-**Shavon's Californias**  
-_The best selection west of Deltaton_  
-6240 Park Lane Road, Xraydam  
-☎ 649-0625
-
-**Papaview Californias & Sons**  
-_The best selection west of Deltaton_  
-6630 Regent Street Lane, Papaview  
-☎ 463-6837
-
-**Horst's Californias**  
-_The biggest budget option near Oscarfield_  
-627 Whitechapel Road Lane, Oscarfield  
-☎ 175-6485
-
-**Channel Californiases**  
-_We put the "vitiation" in "novitiation"_  
-5234 Euston Road Parkway, Echoburn  
-☎ 355-7798
-
-**A.P. Grounds**  
-_Recommended by phenomenal captain Julio Boyle_  
-253 Leicester Square Lane, Novemberbridge  
-☎ 739-1195
-
-**Victorland Zero**  
-_You've never seen Californias this mid-range 
-Victorland: Continue north at Victorland, Continue Straight east at Victorland, Continue Straight just outside at Victorland_  
-528 Old Kent Road Road, Victorland  
-☎ 529-8839
+**G.M. Picariae & Bumelia**  
+_Proud sponsors of the radio_  
+838 Piccadilly Parkway, Julietttown  
+☎ 510-0731
 

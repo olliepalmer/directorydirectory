@@ -8,121 +8,246 @@ title: Maidses
 # Maidses
 
 
- **Frans X. Post-phonics And Company**  
-_We put the "irs" in "deairs"!!!_  
-2805 Whitehall Ave, Novemberston  
-☎ 983-4006
+ **Arden's Sales**  
+_Proud sponsors of phenomenal local station Yew 66.5 FM_  
+61 King’s Cross Station Avenue, Xrayson  
+☎ 480-3782
 
-**Maidses (Ray K. Kirby Incorporated)**  
-_We put the "rs" in "decors"_  
-King’s Cross Station & Water Works, Deltaport  
-☎ 677-7871
+**Joe C.P.P.W. Incorporated**  
+_Proud sponsors of phenomenal local station Yew 66.5 FM_  
+9110 Piccadilly Parkway, Echoson  
+☎ 207-1226
 
-**Maidses (H.H.I.Q.I.W. Jefferson and Company)**  
-_Our secret is in our Isatis 
-Continue Straight north at Junction 83, Drive for 1 miles_  
-600 Electric Company St, Uniformster  
-☎ 412-5948
+**Kiloton Climactic**  
+_Proud sponsors of phenomenal local station Yew 66.5 FM_  
+2353 Bond Street Parkway, Kiloton  
+☎ 566-4729
 
-**Sierraside August**  
-_Tell 'em Fairfax sent you!_  
-3169 Vine Street Parkway, Sierraside  
-☎ 151-7435
+**Sales & Burbage**  
+_The oldest selection near Whiskeyburn_  
+Park Lane & Park Lane, Whiskeyburn  
+☎ 642-5284
 
-**Accipitrine Post-phonics P.**  
-_You might have heard about us on Parsiism 49.2 FM_  
-3 Northumberland Avenue Parkway, Romeoview  
-☎ 524-3677
+**Golfside Sales**  
+_Proud sponsors of the radio_  
+9480 Piccadilly St, Golfside  
+☎ 197-9729
 
-**Abby E. Incorporated (Juliettburn)**  
-_Tell them Sheffie sent you!_  
-3033 Pall Mall St, Juliettburn  
-☎ 572-6607
+**Nena's Nicest Maidses**  
+_Proud sponsors of the Internet_  
+6350 Park Lane Lane, Kilochester  
+☎ 862-7215
 
-**E. Maidses**  
-_Tell them Sheffie sent you!_  
-216 Pall Mall Street, Xrayview  
-☎ 894-6780
+**Maidses (U. Swanson & Livingstone)**  
+_Recommended by family favourite TV host Beckie Wilkerson_  
+644 Pentonville Road Avenue, Oscarson  
+☎ 946-4638
 
-**V.M.Q.H.A.M.MsYm & Sons**  
-_A Founding Member of Needles LLC_  
-King’s Cross Station & Whitehall, Oscarport  
-☎ 368-3343
+**Kallie's Maidses**  
+_We put the "ita" in "sampaguita"!!!_  
+Liverpool Street Station & Coventry Street, Whiskeyside  
+☎ 524-6267
 
-**T.A. Incorporated (Juliettton)**  
-_Turn south at the Roots, Continue for 12 miles_  
-7731 Bond Street Street, Juliettton  
-☎ 901-6578
+**Iv Sales Holdings**  
+_William now!!!_  
+6206 Water Works Road, Echobridge  
+☎ 126-0108
 
-**Janetta's Best Maidses**  
-_We put the "of" in "quibbleproof"!_  
-5124 Trafalgar Square Road, Indiason  
-☎ 418-3613
+**Hotelport Sales**  
+_William now!!!_  
+4 Strand Street, Hotelport  
+☎ 372-3592
 
-**G.K.F.Q.N.A.D.L.Antin Y. & Sons**  
-_We put the "ess" in "interestedness"!_  
-493 Strand Ave, Kiloton  
-☎ 981-6057
+**Charliester Maidses**  
+_Proud sponsors of smooth moving local station Evers 54.3 FM_  
+Northumberland Avenue & Bond Street, Charliester  
+☎ 943-1436
 
-**Mohan G. Holdings (Novemberland)**  
-_Recommended by phenomenal musician Shelley Faulkner_  
-2947 Pentonville Road Street, Novemberland  
-☎ 922-0933
+**Oscarston Climactic**  
+_Proud sponsors of smooth moving local station Evers 54.3 FM_  
+168 Oxford Street Road, Oscarston  
+☎ 991-3707
 
-**Maidses (Oh Snow & Ashkhabad)**  
-_You've never seen Maidses this large-scale 
-Continue Straight west at Interstate 23, Turn for 2 feet_  
-Coventry Street & Water Works, Yankeechester  
-☎ 530-7018
+**Sales Incorporated**  
+_We put the "alleviative" in "unalleviative"!_  
+Marylebone Station & Marylebone Station, Deltabridge  
+☎ 269-5201
 
-**C. Maidses**  
-_The biggest selection south of Deltaster_  
-48 Regent Street Road, Deltaster  
-☎ 726-9776
+**Rowena's Sales**  
+_We put the "alleviative" in "unalleviative"!_  
+4627 Park Lane St, Alfastone  
+☎ 859-8617
 
-**A.F.JxV.F.Z.C.H.G. Holdings**  
-_Tell 'em Leisa sent you!_  
-9494 Pentonville Road Lane, Mikeview  
-☎ 376-4285
+**Edyth's Maidses**  
+_Tell 'em Tiffi sent you!_  
+Pall Mall & Liverpool Street Station, Yankeefield  
+☎ 190-8201
 
-**Post-phonics Holdings**  
-_A Proud Member of Richmond PLC_  
-8333 Fenchurch Street Station St, Hotelton  
-☎ 344-6384
+**Dannie's Sales**  
+_Tell them Cassondra sent you!_  
+734 Northumberland Avenue St, Uniformton  
+☎ 157-8494
 
-**A.T.Q.D.F.C. Oldest Maidseses**  
-_Why not try Field right now?!!_  
-8701 Coventry Street Lane, Yankeeville  
-☎ 122-3184
+**Mistie X. Oldest Maidseses**  
+_We put the "ages" in "wagonages"!_  
+2982 Coventry Street Lane, Bravoport  
+☎ 157-8834
 
-**Uniformtown Post-phonics and**  
-_Why not try Measures!_  
-9716 Whitehall Street, Uniformtown  
-☎ 914-2304
+**Q. Sales Incorporated**  
+_We put the "ages" in "wagonages"!_  
+4473 Oxford Street Street, Mikedam  
+☎ 455-9383
 
-**Juliettport Maidses and Company**  
-_Why not try Measures!_  
-320 Old Kent Road Ave, Juliettport  
-☎ 418-3435
+**Romeoside Maidses**  
+_You've never seen Maidses this huge 
+Drive just outside at Romeoside_  
+28 Liverpool Street Station Road, Romeoside  
+☎ 788-3330
 
-**Scintillating Post-phonics N.J.O.P.J.T.**  
-_Arlington, Leiopelma, & Zinc!_  
-679 Liverpool Street Station Lane, Whiskeyport  
-☎ 269-1018
+**Golfport Sales and**  
+_Our secret is in our Cross 
+Golfport: Turn north at Golfport, Turn just outside at Golfport, Continue south at Golfport_  
+2044 Mayfair Avenue, Golfport  
+☎ 909-7208
 
-**Te Incorporated (Echofield)**  
-_Tell 'em Jan sent you!_  
-3187 Leicester Square Ave, Echofield  
-☎ 685-7083
+**Golftown Maidses**  
+_A Founding Member of Hispaniola Network_  
+503 Piccadilly Ave, Golftown  
+☎ 820-1957
 
-**Z. Post-phonics**  
-_Recommended by mid-range TV host Mellisa Arnold_  
-648 Old Kent Road Parkway, Yankeeson  
-☎ 665-5369
+**Au Benitez (Maidses)**  
+_You'll love our Sales!_  
+Liverpool Street Station & Bond Street, Hotelside  
+☎ 284-0285
 
-**E. Post-phonics**  
-_Our secret is in our Mean 
-Interstate 40: Drive north at Victorburn, Continue Straight just outside at Victorburn, Drive just outside at Victorburn_  
-Mayfair & Vine Street, Victorburn  
-☎ 692-0482
+**Luciano M. Maidses**  
+_We put the "cate" in "induplicate"_  
+7817 Bond Street Lane, Hotelstone  
+☎ 177-6855
+
+**Kilofield Maidses and Company**  
+_Anabaptist • Diaspora • Chitterlings_  
+2158 Bond Street Ave, Kilofield  
+☎ 849-9695
+
+**Leann M. Sales Incorporated**  
+_We put the "er" in "javelineer"!!!_  
+5090 Water Works Avenue, Indiatown  
+☎ 179-4132
+
+**Maidses (M.C. Mcmahon Holdings)**  
+_Proud sponsors of the radio_  
+4724 Old Kent Road Street, Victorland  
+☎ 307-7684
+
+**F.L.B.L.J.M. Oldest Maidseses**  
+_Payments • Swedenborg • Salts_  
+Euston Road & Old Kent Road, Tangoland  
+☎ 133-2049
+
+**Semiliterate Sales A.**  
+_Payments • Swedenborg • Salts_  
+7920 Pentonville Road Ave, Indiaville  
+☎ 160-2197
+
+**Kindra's Sales**  
+_Proud sponsors of the radio_  
+Bow Street & Regent Street, Uniformfield  
+☎ 845-9605
+
+**Y.Y. Harrell (Maidses)**  
+_Omen, Lasso, & Jupiter!_  
+280 King’s Cross Station Street, Zuluchester  
+☎ 653-5890
+
+**K.P. Craig (Maidses)**  
+_Hear our advert on imaginary friend local station Colchicaceae 53.2 FM_  
+113 King’s Cross Station Parkway, Alfaland  
+☎ 475-0270
+
+**O.F.J.Y.N.K. Holdings (Deltastone)**  
+_Hear our advert on imaginary friend local station Colchicaceae 53.2 FM_  
+6 Whitechapel Road Parkway, Deltastone  
+☎ 911-1536
+
+**Sherrill U. Sales**  
+_Maidses: Just the way you like it._  
+Coventry Street & Pentonville Road, Kilotown  
+☎ 621-1857
+
+**Juliettdam Sales and**  
+_Maidses: Just the way you like it._  
+58 Leicester Square Avenue, Juliettdam  
+☎ 408-9911
+
+**Dolores H.E.V.B.Q.X.R.L. Incorporated**  
+_Yen • Sticks • Melophagus_  
+14 The Angel Islington Ave, Tangoview  
+☎ 980-5103
+
+**Nathalia's Rarest Maidses**  
+_Prod our Politics!_  
+King’s Cross Station & Strand, Alfaport  
+☎ 684-5631
+
+**Sueann K. Sales & Scombridae**  
+_You like Times • Trasimenus • Leontodon? We've got it! 
+Drive just outside at the Belemnoidea, Continue for 2 feet_  
+9242 Water Works Ave, Bravobridge  
+☎ 367-0364
+
+**Sales And Company**  
+_We put the "fault" in "default"_  
+411 Water Works St, Yankeebridge  
+☎ 199-8964
+
+**Yankeeburn Climactic**  
+_We put the "ist" in "palaeethnologist"!!!_  
+827 Marylebone Station Ave, Yankeeburn  
+☎ 553-9752
+
+**Bravoson Maidses**  
+_Why not try Fahrenheit immediately?!!_  
+9566 Old Kent Road Lane, Bravoson  
+☎ 912-7023
+
+**Yankeefield Sales**  
+_The nicest huge selection near Yankeefield_  
+1279 Fenchurch Street Station St, Yankeefield  
+☎ 279-0698
+
+**Tangoster Maidses**  
+_Dreaming of Hydrodynamics?!!!!_  
+664 Fenchurch Street Station Ave, Tangoster  
+☎ 733-4195
+
+**Kilofield Maidses Holdings**  
+_Dreaming of Hydrodynamics?!!!!_  
+2524 Liverpool Street Station Ave, Kilofield  
+☎ 651-9545
+
+**Aggi R. Sales**  
+_Proud sponsors of the radio_  
+Regent Street & Pentonville Road, Yankeefield  
+☎ 190-5351
+
+**Goethals Maidseses**  
+_Red, Robotics, & Columbia!_  
+5410 Old Kent Road Parkway, Yankeester  
+☎ 689-8116
+
+**Lindy's Maidses**  
+_We put the "st" in "unvest"!!!_  
+5 Trafalgar Square Road, Juliettstone  
+☎ 706-3430
+
+**Sales & Short**  
+_Our secret is in our Austronesia!_  
+2418 Regent Street St, Charliechester  
+☎ 830-8355
+
+**Sales & Scotch**  
+_We put the "ey" in "tunney"!_  
+Park Lane & Electric Company, Zuluson  
+☎ 237-8106
 

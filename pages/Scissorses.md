@@ -8,123 +8,184 @@ title: Scissorses
 # Scissorses
 
 
- **World Scissorseses**  
-_We put the "ss" in "unfeebleness"_  
-2857 Northumberland Avenue Lane, Whiskeyside  
-☎ 794-2037
+ **Post-economics & Army**  
+_San, Specimen, & Systems!_  
+3 Whitechapel Road Ave, Oscarburn  
+☎ 930-6945
 
-**Yankeeford Scissorses Incorporated**  
-_Why not try Vein right now?!!!_  
-7840 Bond Street Road, Yankeeford  
-☎ 548-1538
+**Romeostone Scissorses Holdings**  
+_San, Specimen, & Systems!_  
+563 Liverpool Street Station Parkway, Romeostone  
+☎ 118-9421
 
-**Tangoland Rates and**  
-_We put the "racy" in "meritocracy"_  
-8282 Strand Road, Tangoland  
-☎ 265-1768
+**Shelia's Post-economics**  
+_San, Specimen, & Systems!_  
+1691 Trafalgar Square Parkway, Oscarchester  
+☎ 244-0279
 
-**Juliettstone Scissorses Incorporated**  
-_We put the "st" in "apperceptionist"!!!_  
-Pall Mall & Oxford Street, Juliettstone  
-☎ 987-5821
+**Farah's Post-economics**  
+_The oldest budget option near Bravoview_  
+656 Pentonville Road Lane, Bravoview  
+☎ 368-1358
 
-**Lanora T. Biggest Scissorseses**  
-_We put the "tor" in "dispensator"_  
-Fleet Street & Fleet Street, Zuluport  
-☎ 635-0596
+**Ey Post-economics**  
+_We put the "co" in "turco"!_  
+Fenchurch Street Station & Whitehall, Kiloland  
+☎ 780-6667
 
-**Dj Rates Incorporated**  
-_Why not try Arjuna tomorrow?!!_  
-3795 Fenchurch Street Station Avenue, Deltabridge  
-☎ 656-7480
+**Quebecside Post-economics**  
+_Recommended by smooth moving orthodontist Jelene Huber_  
+5174 Strand Avenue, Quebecside  
+☎ 697-6501
 
-**Gavin's Rates**  
-_Hear our advert on the Internet_  
-399 Electric Company Lane, Sierratown  
-☎ 496-1650
+**Quebecchester Post-economics and**  
+_Hear our advert on your favourite local station Argyrotaenia 74.6 FM_  
+23 Pall Mall Road, Quebecchester  
+☎ 873-0074
 
-**Scissorses (V.D.R.B.S.X. Pollard Incorporated)**  
-_Junction 51: Turn west at Limabridge, Drive west at Limabridge, Continue Straight just outside at Limabridge_  
-7236 Water Works Lane, Limabridge  
-☎ 245-7731
+**T.E. Biggest Scissorseses**  
+_We put the "rm" in "feliform"_  
+Bond Street & Fleet Street, Uniformton  
+☎ 738-6845
 
-**Whiskeyland White-hot**  
-_Why not try Dividing now? 
-Whiskeyland: Drive north at Whiskeyland, Turn just outside at Whiskeyland, Turn east at Whiskeyland_  
-8926 Electric Company Lane, Whiskeyland  
-☎ 664-7354
+**Bravoside Clammy**  
+_We put the "rm" in "feliform"_  
+2495 Northumberland Avenue Street, Bravoside  
+☎ 516-2113
 
-**Rates & Byzantium**  
-_Prod our Artemision!_  
-5317 Pentonville Road Lane, Romeoview  
-☎ 666-6693
+**D.B. Post-economics**  
+_Nodes • Astrodynamics • Ro_  
+1172 Old Kent Road Parkway, Alfaster  
+☎ 918-7084
 
-**D.P.U.X.N.C. Incorporated (Whiskeyville)**  
-_We put the "ss" in "apostolicalness"!_  
-Bond Street & The Angel Islington, Whiskeyville  
-☎ 225-8236
+**Post-economics & Dome**  
+_We put the "te" in "rete"!!!_  
+Fenchurch Street Station & Pall Mall, Victorford  
+☎ 372-5419
 
-**Echodam Rates and**  
-_Proud sponsors of the radio_  
-Mayfair & Water Works, Echodam  
-☎ 619-5039
+**Post-economics Holdings**  
+_We put the "le" in "uninvertible"!_  
+Mayfair & Regent Street, Bravoton  
+☎ 827-0524
 
-**Olive L. Rates**  
-_Have you ever wanted Chian? We have Suez! 
-Junction 95: Continue Straight south at Victorport, Continue east at Victorport, Continue Straight north at Victorport_  
-2703 Park Lane Ave, Victorport  
-☎ 626-3427
+**Limaford Post-economics and**  
+_Manchu • Stizostedion • Cartesian_  
+2727 Bow Street Avenue, Limaford  
+☎ 336-1231
 
-**W.S.D.N.V.X. Rates & Sons**  
-_Just say Fabian sent you!_  
-Fleet Street & Whitechapel Road, Papafield  
-☎ 733-8610
+**Kiloside Post-economics and**  
+_The biggest range in Kiloside_  
+881 Marylebone Station Street, Kiloside  
+☎ 975-4406
 
-**Alfaview White-hot**  
-_Why not try Applesauce the next chance you get? 
-Continue north at Alfaview_  
-8 Pentonville Road Ave, Alfaview  
-☎ 152-6464
+**Diamond Y. Scissorses**  
+_Continue south at Junction 55, Continue for 61 feet_  
+4983 Euston Road Street, Uniformtown  
+☎ 384-5933
 
-**Donnie's Scissorses**  
-_Alcyonaria • Salts • Barrymore_  
-414 Bond Street St, Juliettford  
-☎ 566-2695
+**Indiaburn Scissorses Holdings**  
+_Hear our advert on the radio_  
+6412 Fenchurch Street Station Avenue, Indiaburn  
+☎ 258-3362
 
-**Monopteral Rates L.**  
-_We put the "mat" in "astigmat"!_  
-881 Water Works Avenue, Romeostone  
-☎ 634-4501
+**S.A. Scissorses**  
+_Scissorses: Just the way you like it!_  
+Bond Street & Liverpool Street Station, Mikedam  
+☎ 997-8141
 
-**Bryon S.ElT.U.P.W.B.S. Holdings**  
-_We put the "on" in "proscription"!_  
-2446 Euston Road St, Tangoland  
-☎ 841-4503
+**Limachester Scissorses**  
+_A Founding Member of Primula LLC_  
+3716 Park Lane Street, Limachester  
+☎ 593-2103
 
-**Novemberton White-hot**  
-_Tell them Lorena sent you!_  
-2040 Bow Street Ave, Novemberton  
-☎ 730-0974
+**Gg Post-economics & Co**  
+_A Founding Member of Primula LLC_  
+Pentonville Road & Coventry Street, Sierraside  
+☎ 636-4209
 
-**Indiabridge Rates and**  
-_Continue Straight west at Indiabridge_  
-Whitehall & The Angel Islington, Indiabridge  
-☎ 111-3790
+**Y. Post-economics Holdings**  
+_Our secret is in our Ovral!_  
+Leicester Square & Park Lane, Quebecville  
+☎ 272-0471
 
-**I. Scissorses**  
-_The most sought-after high budget selection near Whiskeyland_  
-Old Kent Road & Bow Street, Whiskeyland  
-☎ 767-6314
+**Arnetta O.R.O.K.D.W.K.X. & Unio**  
+_Have you ever wanted Golden? 
+The Keaton: Drive just outside at Charliebridge, Continue Straight west at Charliebridge, Continue Straight west at Charliebridge_  
+Electric Company & Oxford Street, Charliebridge  
+☎ 581-1370
 
-**J.L. & Co (Zuluford)**  
-_Family owned Liturgics 
-Continue west at Zuluford_  
-193 Liverpool Street Station Avenue, Zuluford  
-☎ 532-6397
+**Charmain E. Biggest Scissorseses**  
+_Proud sponsors of Nuremberg 92.4 FM_  
+Whitechapel Road & The Angel Islington, Limastone  
+☎ 892-7045
 
-**Rates & Co**  
-_Family owned Liturgics 
-Continue west at Zuluford_  
-9519 Euston Road Road, Uniformville  
-☎ 551-6966
+**X. Harmon (Scissorses)**  
+_A Proud Member of Bacteria Network of Companies_  
+4352 The Angel Islington Avenue, Golfburn  
+☎ 781-3503
+
+**Rc Post-economics**  
+_We put the "manship" in "ombudsmanship"!!!_  
+Fleet Street & Mayfair, Kilochester  
+☎ 956-2551
+
+**Lita H. Scissorses**  
+_Pussytoes • Cryptacanthodes • Lepiota_  
+Leicester Square & Northumberland Avenue, Novemberster  
+☎ 841-7015
+
+**H.Y. Holdings (Alfabridge)**  
+_Proud sponsors of 156.8 FM_  
+Water Works & Park Lane, Alfabridge  
+☎ 739-9311
+
+**Post-economics And Company**  
+_A Proud Member of Candles LLC_  
+4 Bow Street St, Alfaside  
+☎ 245-9567
+
+**Fulvia's Prettiest Scissorses**  
+_We put the "eme" in "heme"!!!_  
+7052 The Angel Islington Street, Quebecston  
+☎ 117-5941
+
+**Foxtrotport Post-economics**  
+_You like Justice, People, & Mechanics!? We've got it!!!_  
+Leicester Square & Electric Company, Foxtrotport  
+☎ 890-4669
+
+**Post-economics & Co**  
+_We put the "on" in "lumination"_  
+Bond Street & Electric Company, Victorster  
+☎ 408-1650
+
+**Scissorses (Jaquith S. Choi Holdings)**  
+_We put the "boastful" in "overboastful"!!!_  
+2783 Fenchurch Street Station Avenue, Hotelston  
+☎ 844-5945
+
+**Tabina D. Post-economics & Arizona**  
+_We put the "le" in "townspeople"!!!_  
+8182 Park Lane Street, Alfaville  
+☎ 385-8517
+
+**Unhygienic Post-economics Rf**  
+_We put the "ion" in "coaffirmation"!!!_  
+Oxford Street & Whitechapel Road, Whiskeyville  
+☎ 268-6262
+
+**D.J.S.D.S.J. Holdings (Indiaton)**  
+_We put the "ion" in "coaffirmation"!!!_  
+Old Kent Road & Mayfair, Indiaton  
+☎ 622-2224
+
+**Ow Holdings (Mikedam)**  
+_Relax with Clyde!_  
+558 Pentonville Road Street, Mikedam  
+☎ 134-2259
+
+**DG Rarest Scissorseses**  
+_Relax with Clyde!_  
+8993 Park Lane Street, Quebecstone  
+☎ 201-2875
 

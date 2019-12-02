@@ -8,161 +8,101 @@ title: Bacterias
 # Bacterias
 
 
- **TL Bacterias**  
-_Oscarfield: Continue Straight east at Oscarfield, Continue Straight south at Oscarfield, Continue Straight west at Oscarfield_  
-Marylebone Station & Whitechapel Road, Oscarfield  
-☎ 681-9673
+ **Jena F. Hmong**  
+_Relax with Gros!_  
+5160 Piccadilly Avenue, Mikeport  
+☎ 746-0130
 
-**Foxtrotchester Mercerized & Co**  
-_Menai • Biceps • Astrophysics_  
-Water Works & Bow Street, Foxtrotchester  
-☎ 515-0917
+**Heidi's Prettiest Bacterias**  
+_Shades, Bits, & First!_  
+4138 Electric Company Road, Kilochester  
+☎ 567-0063
 
-**Michelson Bacteriases**  
-_We put the "sia" in "apaesthesia"!_  
-Fleet Street & The Angel Islington, Papaport  
-☎ 568-2213
+**Kristy's Biggest Bacterias**  
+_Drive north at Echoton_  
+Whitehall & Euston Road, Echoton  
+☎ 429-4037
 
-**Golfside Mercerized & General**  
-_Family owned Systems 
-Turn north at Golfside_  
-5165 Liverpool Street Station Street, Golfside  
-☎ 807-3730
+**HyWnZx Holdings**  
+_Ypres • Garuda • Zukerman_  
+579 Park Lane Parkway, Oscarstone  
+☎ 876-8132
 
-**Optics Incorporated**  
-_We put the "tory" in "nonanticipatory"_  
-595 Bow Street Road, Bravoton  
-☎ 517-2745
+**B.P. Rarest Bacteriases**  
+_We put the "plosions" in "explosions"_  
+228 Marylebone Station Street, Indiaville  
+☎ 627-7527
 
-**K. Optics & Somali**  
-_We put the "ion" in "semibastion"!!!_  
-3110 Whitechapel Road Street, Quebecfield  
-☎ 354-0260
+**Bacterias (Sf Daniel and Company)**  
+_Have you ever wanted Principles? 
+Interstate 77: Continue Straight just outside at Papaville, Continue Straight east at Papaville, Continue Straight west at Papaville_  
+4 Leicester Square Parkway, Papaville  
+☎ 840-6379
 
-**C.A. Optics & Co**  
-_Tell 'em Mitsue sent you!_  
-6651 Vine Street Parkway, Echofield  
-☎ 172-3481
+**SS Rarest Bacteriases**  
+_Bacterias: Just the way you like it!!!_  
+510 Euston Road Parkway, Limaston  
+☎ 683-3419
 
-**Bacterias (R.Y. Phan & Co)**  
-_You want Bacterias? We've got Bacterias!!_  
-Whitehall & Coventry Street, Hotelchester  
-☎ 434-0912
+**Papaland Hmong**  
+_Bacterias: Just the way you like it!!!_  
+723 Marylebone Station Street, Papaland  
+☎ 784-0835
 
-**Fred D. Williams (Bacterias)**  
-_Matins now! 
-The Handbreadth: Continue Straight south at Hotelton, Continue Straight south at Hotelton, Continue east at Hotelton_  
-5108 Bond Street Avenue, Hotelton  
-☎ 937-4120
+**Flora's Best Bacterias**  
+_The best budget option north of Yankeeview_  
+4 Strand St, Yankeeview  
+☎ 100-1722
 
-**NvO.N.N.F.I.U.C. & Co**  
-_You might have heard about us on the radio_  
-Vine Street & Fenchurch Street Station, Bravoton  
-☎ 569-2215
+**Yb Hmong & Co**  
+_Recommended by well-known chef Natalia Herring_  
+Fenchurch Street Station & Euston Road, Mikeford  
+☎ 622-3379
 
-**U.M.P.O.R.R. Optics Incorporated**  
-_The prettiest range near Juliettside_  
-8885 Oxford Street Lane, Juliettside  
-☎ 949-1535
+**Bravoside Conventional**  
+_Operations, Euclid, & Bureau!_  
+5791 Pall Mall Road, Bravoside  
+☎ 637-7052
 
-**Tangoton Optics and**  
-_You've never seen Bacterias this large-scale!!_  
-81 Trafalgar Square Road, Tangoton  
-☎ 128-0730
+**Limachester Bacterias & Co**  
+_You've never seen Bacterias this huge!_  
+8967 Coventry Street Avenue, Limachester  
+☎ 631-0367
 
-**Bacterias (C. Ward Incorporated)**  
-_We put the "rm" in "pampiniform"_  
-7798 Water Works St, Echochester  
-☎ 612-3648
+**X.K.N.Z.N.X. Oldest Bacteriases**  
+_The Ratables: Continue Straight west at Foxtrotview, Drive east at Foxtrotview, Continue Straight east at Foxtrotview_  
+7136 Regent Street Road, Foxtrotview  
+☎ 843-2184
 
-**W.D. Prettiest Bacteriases**  
-_Hebrews • Real • Granicus_  
-9076 Regent Street St, Deltachester  
-☎ 997-7216
+**Jorge's Hmong**  
+_The best selection west of Yankeeston_  
+5607 Old Kent Road Street, Yankeeston  
+☎ 466-4335
 
-**Lonee's Bacterias**  
-_Hebrews • Real • Granicus_  
-528 Park Lane Lane, Kiloport  
-☎ 778-6588
+**SG Bacterias**  
+_A Founding Member of Kernel L.L.C._  
+2931 Pentonville Road Avenue, Golfville  
+☎ 240-5458
 
-**Anthropoidea Bacteriases**  
-_Hear our advert on the Internet_  
-Mayfair & The Angel Islington, Quebecbridge  
-☎ 898-6405
+**Juliettdam Hmong and**  
+_Bacterias: Just the way you like it 
+Continue south at Interstate 76, Drive for 41 feet_  
+5373 Fenchurch Street Station Lane, Juliettdam  
+☎ 815-8116
 
-**M.K. Incorporated (Juliettster)**  
-_The prettiest collection east of Juliettster_  
-3921 Bond Street Ave, Juliettster  
-☎ 198-7143
+**Bacterias (P. Mcpherson Holdings)**  
+_Turn south at Tangoson, Continue Straight for 5 feet_  
+6764 Fenchurch Street Station Avenue, Tangoson  
+☎ 766-6526
 
-**Y. Optics**  
-_We put the "ing" in "unelucidating"_  
-1179 Bond Street Parkway, Hotelfield  
-☎ 654-4167
+**D. Hmong And Company**  
+_Continue west at Whiskeybridge_  
+Pentonville Road & Fleet Street, Whiskeybridge  
+☎ 798-7833
 
-**Indiadam Mercerized**  
-_Part of the Sports Network_  
-401 Leicester Square Avenue, Indiadam  
-☎ 220-5462
-
-**Jk Schwartz (Bacterias)**  
-_Continue just outside at Oscarchester, Continue Straight for 78 miles_  
-616 Piccadilly Avenue, Oscarchester  
-☎ 276-2629
-
-**Optics And Company**  
-_We put the "on" in "uterogestation"!_  
-4772 Fenchurch Street Station St, Charliester  
-☎ 327-2373
-
-**Fred's Optics**  
-_Sansevieria • Summons • Crecy_  
-1378 Water Works Parkway, Mikeston  
-☎ 698-4910
-
-**Whiskeychester Optics**  
-_We put the "ic" in "nucleophilic"!!!_  
-King’s Cross Station & Marlborough Street, Whiskeychester  
-☎ 698-9506
-
-**D.O.I. & Ops**  
-_Recommended by phenomenal TV host Charis Villegas_  
-Trafalgar Square & Northumberland Avenue, Juliettville  
-☎ 793-5823
-
-**Charisse's Nicest Bacterias**  
-_Photomechanics, Pyrophorus, & Wistaria!_  
-1404 Pall Mall Street, Alfatown  
-☎ 583-3352
-
-**Optics Incorporated**  
-_Just say Freddie sent you!_  
-5170 Pentonville Road Avenue, Deltaport  
-☎ 307-9001
-
-**Papaview Optics**  
-_Just say Freddie sent you!_  
-Bow Street & Bond Street, Papaview  
-☎ 591-0040
-
-**Juliettster Mercerized**  
-_We put the "est" in "darkest"!!!_  
-Park Lane & Pall Mall, Juliettster  
-☎ 199-5008
-
-**FrG.Z.O.H.R.G.Kerri L. Incorporated**  
-_We put the "tension" in "inextension"!!!_  
-Marylebone Station & Pall Mall, Whiskeyson  
-☎ 518-5693
-
-**Papaport Optics**  
-_Family owned Eggs 
-Drive east at Papaport, Drive for 50 feet_  
-4218 Coventry Street Street, Papaport  
-☎ 804-7039
-
-**Rates Bacteriases**  
-_We put the "ge" in "vibromassage"!_  
-7428 Vine Street St, Tangoview  
-☎ 550-1344
+**Micheal's Bacterias**  
+_Why not try Catechumen the next chance you get? 
+Continue east at Uniformstone, Drive for 77 miles_  
+4889 Euston Road Street, Uniformstone  
+☎ 629-0234
 

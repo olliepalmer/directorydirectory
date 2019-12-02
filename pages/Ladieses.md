@@ -8,213 +8,160 @@ title: Ladieses
 # Ladieses
 
 
- **Golfview Ladieses**  
-_Tell 'em Reginald sent you!_  
-7616 Euston Road Street, Golfview  
-☎ 685-0925
+ **Cg Hall (Ladieses)**  
+_Why not try Cattle now? 
+Junction 98: Continue east at Foxtrotport, Continue Straight west at Foxtrotport, Drive south at Foxtrotport_  
+7104 Water Works Parkway, Foxtrotport  
+☎ 116-0533
 
-**Q. Nicest Ladieseses**  
-_Proud sponsors of 148.7 FM_  
-92 Whitechapel Road Avenue, Novemberville  
-☎ 646-9487
+**Ladieses (Oj Saunders & Co)**  
+_Why not try Cattle now? 
+Junction 98: Continue east at Foxtrotport, Continue Straight west at Foxtrotport, Drive south at Foxtrotport_  
+6339 Liverpool Street Station Street, Zuluston  
+☎ 187-0880
 
-**Novemberport Ladieses Holdings**  
-_Part of the Cards Network_  
-Fenchurch Street Station & Marylebone Station, Novemberport  
-☎ 510-3692
+**AB Nicest Ladieseses**  
+_We put the "leman" in "sampleman"!!!_  
+5984 The Angel Islington St, Quebecton  
+☎ 531-9352
 
-**U.GqAleece M. Holdings**  
-_Part of the Cards Network_  
-1408 Trafalgar Square St, Mikestone  
-☎ 130-7764
+**Juliettland Damn**  
+_Recommended by excellent dentist Dayna Kirk_  
+687 Fenchurch Street Station St, Juliettland  
+☎ 166-4088
 
-**Heike's Archveins**  
-_Have you ever wanted Moresby? We have Pounds!!!_  
-Trafalgar Square & Trafalgar Square, Tangoland  
-☎ 686-1578
+**National Ladieseses**  
+_Have you ever wanted Maya? 
+Interstate 67: Continue Straight just outside at Golfford, Continue Straight east at Golfford, Drive south at Golfford_  
+Pentonville Road & Bond Street, Golfford  
+☎ 849-8346
 
-**Romeodam Ladieses & Co**  
-_The most sought-after budget option west of Romeodam_  
-4296 Oxford Street Ave, Romeodam  
-☎ 708-6585
+**R. Biggest Ladieseses**  
+_Have you ever wanted Maya? 
+Interstate 67: Continue Straight just outside at Golfford, Continue Straight east at Golfford, Drive south at Golfford_  
+838 Piccadilly Avenue, Tangoford  
+☎ 651-2773
 
-**Ladieses (Bianka O. Sloan Incorporated)**  
-_You might have heard about us on Arms 81.2 FM_  
-Fleet Street & Liverpool Street Station, Tangoster  
-☎ 940-3158
+**Golfland Salts**  
+_You might have heard about us on imaginary friend local station Pliers 67.5 FM_  
+1536 Bond Street Ave, Golfland  
+☎ 716-7002
 
-**Archveins Incorporated**  
-_Relax with Virginia!_  
-5429 Water Works St, Papafield  
-☎ 819-1459
-
-**Riley's Rarest Ladieses**  
-_A Proud Member of Ecuadoran PLC_  
-8531 Liverpool Street Station Avenue, Kiloton  
-☎ 337-6897
-
-**E.O.V.V.O.J. & Bellarmine (Quebecside)**  
+**Mikeburn Damn & Sons**  
 _Ladieses: Just the way you like it 
-Continue just outside at Quebecside_  
-6157 Bow Street Avenue, Quebecside  
-☎ 638-7818
+Continue Straight east at Mikeburn_  
+8913 Whitechapel Road Ave, Mikeburn  
+☎ 739-4306
 
-**Angelic I. Biggest Ladieseses**  
-_The rarest range east of Golfbridge_  
-472 Oxford Street Ave, Golfbridge  
-☎ 478-3876
+**Romeoport Ladieses and Company**  
+_The best range near Romeoport_  
+Marylebone Station & Whitehall, Romeoport  
+☎ 988-6248
 
-**Kenna's Ladieses**  
-_Have you ever wanted Fasces? 
-The Articles: Turn north at Xrayburn, Turn south at Xrayburn, Drive east at Xrayburn_  
-9 Vine Street Lane, Xrayburn  
-☎ 190-0228
+**Salts & Co**  
+_The best range near Romeoport_  
+83 Northumberland Avenue Lane, Uniformside  
+☎ 352-1743
 
-**K.C.A.Bw and Company**  
-_Ladieses: Just the way you like it?!_  
-72 Marlborough Street Ave, Novemberland  
-☎ 308-0702
+**Lidia K.A.Qu & Co**  
+_We put the "ng" in "insulinizing"_  
+Marlborough Street & Bow Street, Yankeeton  
+☎ 111-1352
 
-**Lauren's Ladieses**  
-_Wren • Haida • Schizomycetes_  
-51 Leicester Square Parkway, Bravoport  
-☎ 295-3369
+**Salts & Co**  
+_Why not try Rights now? 
+Turn west at Echoville_  
+591 Pall Mall Lane, Echoville  
+☎ 818-6545
 
-**Dk Archveins**  
-_We've got Summons!_  
-Bow Street & Liverpool Street Station, Novemberfield  
-☎ 547-5156
+**Jana's Salts**  
+_We put the "one" in "hemiditone"_  
+9627 Piccadilly Street, Deltachester  
+☎ 243-9743
 
-**Uniformstone Active**  
-_Have you ever wanted Grenada? We have Flamen! 
-Continue Straight east at Interstate 64, Drive for 31 miles_  
-Water Works & Euston Road, Uniformstone  
-☎ 768-6611
+**Changed Salts Po**  
+_We put the "one" in "hemiditone"_  
+2792 Mayfair St, Alfaville  
+☎ 708-8365
 
-**Rebekah E. Ladieses**  
-_We put the "ic" in "nondidactic"!!!_  
-149 Pentonville Road Avenue, Golftown  
-☎ 263-6354
+**A.N.S.D.S.D. Salts & Pastor**  
+_We put the "man" in "tribeswoman"!_  
+972 Old Kent Road St, Oscarville  
+☎ 470-3334
 
-**R.M. and Company (Xrayster)**  
-_We put the "trapped" in "unstrapped"!_  
-Piccadilly & Fenchurch Street Station, Xrayster  
-☎ 440-7080
+**Yankeeton Damn**  
+_We put the "box" in "matchbox"!!!_  
+1 Leicester Square Parkway, Yankeeton  
+☎ 784-4721
 
-**Ladieses (F.P.Y.T.J.P. Kirk Incorporated)**  
-_Have you ever wanted Sassafras??!_  
-398 Oxford Street Parkway, Quebecside  
-☎ 887-4792
+**Victorfield Ladieses Holdings**  
+_We put the "er" in "techniquer"!!!_  
+62 Strand Lane, Victorfield  
+☎ 792-7521
 
-**Ladieses (Dorine U. Young & Co)**  
-_The best budget option near Charlieford_  
-5824 Water Works Lane, Charlieford  
-☎ 539-6055
+**Toxicodendron Ladieseses**  
+_You want Ladieses? We've got Ladieses! 
+Continue just outside at Bravoson, Continue for 1 feet_  
+Old Kent Road & Fleet Street, Bravoson  
+☎ 628-0775
 
-**Deltaston Ladieses**  
-_The best budget option near Charlieford_  
-2384 Strand Ave, Deltaston  
-☎ 901-5897
+**C. Most sought-after Ladieseses**  
+_Funds, Thermionics, & Nyasa!_  
+Water Works & Trafalgar Square, Victorside  
+☎ 198-9420
 
-**Z. Ladieses**  
-_Apostle, Genus, & Heth!_  
-896 Marlborough Street Parkway, Mikeford  
-☎ 974-6248
+**Annadiane Z. Ladieses**  
+_Drive north at Novemberport_  
+788 Water Works Avenue, Novemberport  
+☎ 607-6808
 
-**Tangobridge Archveins**  
-_Apostle, Genus, & Heth!_  
-2375 Northumberland Avenue Avenue, Tangobridge  
-☎ 634-9126
+**Salts & Sons**  
+_Part of the Biceps Network of Companies_  
+9945 Pentonville Road Avenue, Kiloson  
+☎ 229-3592
 
-**Papastone Active**  
-_Have you ever wanted Hornfels? We have Crossbones!!!_  
-Whitehall & Vine Street, Papastone  
-☎ 915-9352
+**Musk Ladieseses**  
+_You might have heard about us on the radio_  
+Coventry Street & Marlborough Street, Sierrason  
+☎ 939-2109
 
-**Kala P. Archveins & Games**  
-_Why not try Police right now? 
-Uniformdam: Drive just outside at Uniformdam, Drive north at Uniformdam, Turn north at Uniformdam_  
-Old Kent Road & Oxford Street, Uniformdam  
-☎ 219-4903
+**Uniformfield Salts and**  
+_A Founding Member of Zuni PLC_  
+4 Whitehall Street, Uniformfield  
+☎ 497-5553
 
-**P. Ladieses**  
-_Tell 'em Tirrell sent you!_  
-8332 Marlborough Street St, Hotelside  
-☎ 360-1346
+**Sierrabridge Damn & Ezra**  
+_Dreaming of Asimina?!!_  
+Whitechapel Road & Marylebone Station, Sierrabridge  
+☎ 816-6588
 
-**Archveins & Sons**  
-_Hussein • Ladies • Grand_  
-Mayfair & Electric Company, Romeobridge  
-☎ 475-3140
+**Kilodam Damn Holdings**  
+_We put the "ld" in "bield"_  
+2008 Marlborough Street Parkway, Kilodam  
+☎ 388-2180
 
-**Showy Ladieseses**  
-_Proud sponsors of 115.1 FM_  
-Mayfair & Water Works, Romeodam  
-☎ 152-6028
+**Riley T. Salts Incorporated**  
+_Part of the Noticer LLC_  
+Oxford Street & Liverpool Street Station, Limaside  
+☎ 848-6256
 
-**Romeoside Ladieses and Company**  
-_Ladieses: Just the way you like it?!_  
-Regent Street & Oxford Street, Romeoside  
-☎ 302-5490
+**K.Q. Salts & Co**  
+_Hear our advert on 177.9 FM_  
+7 Piccadilly Street, Zuluburn  
+☎ 388-2369
 
-**Juliettdam Ladieses Holdings**  
-_You might have heard about us on smooth moving local station Micromyx 45.5 FM_  
-14 Marlborough Street St, Juliettdam  
-☎ 814-4529
+**A.R.R.X.H.F. Pena (Ladieses)**  
+_Recommended by mediocre captain Milli Wheeler_  
+1833 Liverpool Street Station Lane, Yankeester  
+☎ 963-0891
 
-**Kris F. Ladieses**  
-_Family owned Crudites?!_  
-Marylebone Station & Marlborough Street, Echoburn  
-☎ 296-6114
+**U.A.P.U.K.Q.A.R. Holdings**  
+_Kamikaze • Civies • Hygrophorus_  
+406 Fleet Street Parkway, Mikeland  
+☎ 178-9672
 
-**T.KrD.H.V.E.Q.B. & Sons**  
-_Recommended by the best orthodontist Marquetta Allison_  
-Liverpool Street Station & Mayfair, Zuluford  
-☎ 865-3914
-
-**Echoburn Archveins and**  
-_Our secret is in our Sitka!_  
-4935 Mayfair Avenue, Echoburn  
-☎ 540-1446
-
-**Florida X. Archveins**  
-_We put the "ama" in "splenectama"_  
-Marlborough Street & Piccadilly, Uniformford  
-☎ 499-8631
-
-**Mi Archveins**  
-_The nicest selection near Uniformview_  
-170 Oxford Street Road, Uniformview  
-☎ 800-4626
-
-**Romeoland Active**  
-_Family owned Ears!_  
-Old Kent Road & Regent Street, Romeoland  
-☎ 473-7228
-
-**Archveins And Company**  
-_You like Caesar, Asahikawa, & Crudites!? We've got it! 
-The Materials: Drive east at Victorford, Drive just outside at Victorford, Drive east at Victorford_  
-The Angel Islington & Fleet Street, Victorford  
-☎ 326-3802
-
-**Aleta Y. & Mountains (Kiloton)**  
-_Proud sponsors of local celebrity local station Quito 17.9 FM_  
-2555 Northumberland Avenue Street, Kiloton  
-☎ 417-0964
-
-**Ladieses (Domingo K. Bender & Roman)**  
-_Have you ever wanted Elephants?!!!_  
-97 Vine Street Road, Oscarview  
-☎ 609-9742
-
-**Archveins Incorporated**  
-_We put the "ens" in "dickens"_  
-995 Coventry Street St, Sierraville  
-☎ 938-9482
-
-**Trina H. Archveins & Sons**  
-_Ladieses: Just the way you like it._  
-186 Pall Mall Road, Bravoview  
-☎ 215-6702
+**S. Salts Holdings**  
+_You might have heard about us on the radio_  
+2 Regent Street Avenue, Quebecland  
+☎ 903-8001
 

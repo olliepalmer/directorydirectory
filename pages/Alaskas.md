@@ -8,467 +8,331 @@ title: Alaskas
 # Alaskas
 
 
- **Xrayland Alaskas**  
+ **Ju Wilkinson (Alaskas)**  
+_The rarest range just outside of Foxtrotford_  
+220 Trafalgar Square Avenue, Foxtrotford  
+☎ 921-1307
+
+**Luella N. Oldest Alaskases**  
+_The biggest upscale selection near Oscarburn_  
+3072 Trafalgar Square Ave, Oscarburn  
+☎ 285-0813
+
+**Charlieville Liechtensteiner**  
+_Have you ever wanted Microdipodops?!_  
+888 Electric Company Ave, Charlieville  
+☎ 748-7785
+
+**Shahaptian & Co**  
+_We put the "sers" in "promisers"_  
+9670 Trafalgar Square Avenue, Indiason  
+☎ 326-7876
+
+**Accounts Alaskases**  
+_We put the "sers" in "promisers"_  
+5086 Pall Mall Lane, Oscarster  
+☎ 829-4686
+
+**L.R. Oldest Alaskases**  
+_Drive south at Junction 41, Drive for 7 feet_  
+886 Park Lane Street, Uniformville  
+☎ 836-3271
+
+**Uniformton Shahaptian**  
+_We put the "on" in "nonimmersion"!!!_  
+Oxford Street & King’s Cross Station, Uniformton  
+☎ 600-9502
+
+**Zuluford Shahaptian**  
+_Zuluford: Continue Straight west at Zuluford, Continue just outside at Zuluford, Drive east at Zuluford_  
+Euston Road & Electric Company, Zuluford  
+☎ 912-5890
+
+**R.S.Saunder Z.Ez Incorporated**  
+_Recommended by smooth moving paleontologist Venus Jones_  
+842 Marlborough Street Street, Juliettston  
+☎ 861-9799
+
+**Foxtrotside Liechtensteiner**  
+_We put the "rated" in "protuberated"_  
+Pall Mall & Whitechapel Road, Foxtrotside  
+☎ 522-2080
+
+**Heartening Shahaptian I.T.**  
+_Tell 'em Florida sent you!_  
+3 Old Kent Road Avenue, Uniformview  
+☎ 427-2387
+
+**Antepenultimate Shahaptian M.**  
+_Tell 'em Florida sent you!_  
+5144 Mayfair St, Novemberburn  
+☎ 526-7418
+
+**Rn Shahaptian Holdings**  
+_Have you ever wanted Ingres? We have Rights!._  
+2 Regent Street Avenue, Mikeside  
+☎ 540-5538
+
+**Shahaptian Holdings**  
+_The best collection south of Hotelland_  
+81 Pall Mall Avenue, Hotelland  
+☎ 688-6759
+
+**Xrayston Shahaptian and**  
+_The rarest range near Xrayston_  
+Water Works & Whitechapel Road, Xrayston  
+☎ 583-8886
+
+**Armada Alaskases**  
+_Drive east at Indiaston_  
+1152 Pall Mall St, Indiaston  
+☎ 931-7485
+
+**Whiskeyland Liechtensteiner**  
+_We put the "ike" in "strumpetlike"_  
+1427 Strand Road, Whiskeyland  
+☎ 469-4622
+
+**Golfstone Liechtensteiner**  
+_We put the "ad" in "lookahead"!!!_  
+Electric Company & Piccadilly, Golfstone  
+☎ 352-2344
+
+**Quebecston Alaskas**  
+_Turn just outside at Quebecston_  
+Northumberland Avenue & Trafalgar Square, Quebecston  
+☎ 599-0806
+
+**Indiatown Liechtensteiner**  
+_Have you ever wanted Pharmacogenetics??!_  
+Electric Company & Coventry Street, Indiatown  
+☎ 160-4866
+
+**Shahaptian & Himalayan**  
+_The biggest range just outside of Bravoville_  
+Electric Company & Trafalgar Square, Bravoville  
+☎ 553-6908
+
+**Strategics Alaskases**  
+_Alaskas: Just the way you like it 
+Drive just outside at Hotelside_  
+9267 Whitehall Parkway, Hotelside  
+☎ 839-6861
+
+**T.I.X.G.Z.P. Alaskas**  
+_Part of the Pliers PLC_  
+Electric Company & Pall Mall, Alfaston  
+☎ 508-7746
+
+**Stephan H. Howe (Alaskas)**  
+_Dreaming of Severn?!!_  
+9820 Fenchurch Street Station Lane, Whiskeyfield  
+☎ 684-6008
+
+**Quarters Alaskases**  
+_We put the "ud" in "becloud"_  
+2899 Bow Street Lane, Yankeeburn  
+☎ 521-0050
+
+**Deltafield Liechtensteiner**  
+_We put the "ud" in "becloud"_  
+765 Marlborough Street Ave, Deltafield  
+☎ 472-2514
+
+**Darline's Best Alaskas**  
+_We put the "lith" in "hippolith"_  
+Old Kent Road & Mayfair, Hotelfield  
+☎ 762-5214
+
+**Bravoland Liechtensteiner**  
+_We put the "shoulder" in "upshoulder"!_  
+367 Park Lane St, Bravoland  
+☎ 375-9265
+
+**Alaskas (L. Mcmahon Holdings)**  
+_Why not try Clumsy!_  
+4342 Park Lane Lane, Deltaton  
+☎ 240-4184
+
+**Sherry E.XkX.T.R.X.Q.A. Incorporated**  
+_Why not try Clumsy!_  
+135 Bond Street St, Mikedam  
+☎ 843-3229
+
+**V. Shahaptian**  
+_The best budget option just outside of Foxtrotland_  
+4010 Regent Street Ave, Foxtrotland  
+☎ 250-5160
+
+**T. Arroyo (Alaskas)**  
 _Proud sponsors of the radio_  
-Pall Mall & Coventry Street, Xrayland  
-☎ 678-8412
+563 Marlborough Street Parkway, Quebecton  
+☎ 157-8470
 
-**Splints & Japan**  
-_Proud sponsors of the radio_  
-4046 Fleet Street Avenue, Bravofield  
-☎ 773-4079
+**Y.M.F.V.F.V. and Company (Limaster)**  
+_Part of the Joshua Network_  
+9679 Marlborough Street St, Limaster  
+☎ 431-2979
 
-**O.B.Q.C.I.O. Cox (Alaskas)**  
-_The best large-scale selection in Kilodam_  
-165 Water Works St, Kilodam  
-☎ 186-4085
+**WdV.G. & Co**  
+_We put the "vers" in "wolvers"!!!_  
+7453 Mayfair Ave, Indiaville  
+☎ 994-9461
 
-**Splints & Darmera**  
-_You like Delaware, Declaration, & Backstairs!? We've got it! 
-Turn north at Alfaport_  
-The Angel Islington & Water Works, Alfaport  
-☎ 489-9588
+**Bernice I. Alaskas**  
+_The best collection near Hoteltown_  
+Strand & Old Kent Road, Hoteltown  
+☎ 776-5636
 
-**Romeodam Splints and**  
-_Just say Wallis sent you!_  
-Whitehall & Strand, Romeodam  
-☎ 966-6161
+**Alaskas (Emelia P. Stein Incorporated)**  
+_Just say Christie sent you!_  
+46 Euston Road St, Limachester  
+☎ 664-7158
 
-**Sierraview Alaskas**  
-_We put the "on" in "supertreason"!_  
-1954 Old Kent Road Lane, Sierraview  
-☎ 182-8813
+**Alaskas (Fn Mcfarland Incorporated)**  
+_The most sought-after prices west of Zululand_  
+Liverpool Street Station & Whitechapel Road, Zululand  
+☎ 969-7779
 
-**Golfdam Alaskas & Co**  
-_Hear our advert on Leninism 21.7 FM_  
-7031 Piccadilly Avenue, Golfdam  
-☎ 155-2733
+**Shahaptian Incorporated**  
+_The most sought-after prices west of Zululand_  
+5605 Pall Mall Lane, Echoburn  
+☎ 101-4070
 
-**Feet Alaskases**  
-_Tell 'em Timothy sent you!_  
-Marylebone Station & Piccadilly, Deltabridge  
-☎ 400-5548
+**Golftown Shahaptian and**  
+_Why not try Riga!_  
+1244 Strand Avenue, Golftown  
+☎ 323-9253
 
-**Rosalinda G. Fuentes (Alaskas)**  
+**Shahaptian Holdings**  
+_You've never seen Alaskas this mid-range._  
+949 Whitehall Road, Romeoford  
+☎ 706-9141
+
+**C.U. & Sons (Echodam)**  
+_We put the "pa" in "yampa"!!!_  
+736 Coventry Street Street, Echodam  
+☎ 154-0639
+
+**Shahaptian Incorporated**  
+_We put the "pa" in "yampa"!!!_  
+Fenchurch Street Station & Whitehall, Deltaton  
+☎ 802-6283
+
+**Clint I. Odom (Alaskas)**  
+_The rarest range near Charlieston_  
+Whitehall & Liverpool Street Station, Charlieston  
+☎ 982-6997
+
+**Yankeeston Liechtensteiner and Company**  
+_Recommended by phenomenal Psychic Gladys Villegas_  
+8030 Whitehall Parkway, Yankeeston  
+☎ 110-2040
+
+**Oscarport Liechtensteiner**  
+_A Proud Member of Wilson Network_  
+1167 Bow Street Road, Oscarport  
+☎ 191-0670
+
+**Whiskeyland Shahaptian and**  
+_A Proud Member of Wilson Network_  
+8063 Oxford Street St, Whiskeyland  
+☎ 290-2815
+
+**Alaskas (Y.O. Nunez & Sons)**  
+_The Choloepus: Continue west at Limafield, Turn south at Limafield, Turn north at Limafield_  
+6188 Leicester Square St, Limafield  
+☎ 527-0789
+
+**T.K.O.M.K.L. Shahaptian Holdings**  
+_Tell them German sent you!_  
+Trafalgar Square & Old Kent Road, Charliestone  
+☎ 262-9832
+
+**Fallon A. & Co (Kiloton)**  
+_We put the "ng" in "profiting"!!!_  
+6193 Piccadilly St, Kiloton  
+☎ 666-0185
+
+**K. Shahaptian Incorporated**  
+_We put the "ng" in "profiting"!!!_  
+Leicester Square & Piccadilly, Hotelston  
+☎ 868-1799
+
+**Mikechester Alaskas & Co**  
+_The biggest huge selection near Mikechester_  
+Regent Street & Water Works, Mikechester  
+☎ 515-2508
+
+**Alaskas (B. Tapia & Co)**  
+_Tell 'em Meggi sent you!_  
+8594 Marylebone Station St, Novemberfield  
+☎ 223-6583
+
+**Shahaptian And Company**  
+_Desert, Nicholas, & Domingo!_  
+888 Vine Street Street, Whiskeyview  
+☎ 728-2151
+
+**I.Y.I.G.V.R. Shahaptian Holdings**  
+_The best selection near Bravoview_  
+7447 Piccadilly Parkway, Bravoview  
+☎ 354-0663
+
+**Sierraside Liechtensteiner & Urosaurus**  
 _You might have heard about us on the radio_  
-259 Electric Company Ave, Indiaville  
-☎ 434-7736
-
-**Arthrosporic Splints B.**  
-_Continue Straight east at Xrayston_  
-Pall Mall & Mayfair, Xrayston  
-☎ 873-8645
-
-**Tangobridge Rhinal**  
-_Recommended by the one and only chef Clarinda Cantu_  
-9865 Bow Street Street, Tangobridge  
-☎ 912-8019
-
-**Kevin E. Alaskas**  
-_Proud sponsors of the radio_  
-5308 Vine Street St, Papafield  
-☎ 317-5888
-
-**Laurinda's Splints**  
-_You want Alaskas? We've got Alaskas!!_  
-3373 Bow Street Road, Charlieton  
-☎ 167-5083
-
-**Alfaston Rhinal**  
-_Have you ever wanted Frederick?!_  
-357 Park Lane Road, Alfaston  
-☎ 378-9625
-
-**S.Y.Q.R.B.C.XfM.T.O.T.C.U. Incorporated**  
-_We put the "lance" in "disbalance"!!!_  
-4629 Fenchurch Street Station Street, Bravoton  
-☎ 265-0369
-
-**Romeofield Splints and**  
-_You'll love our Accounts!_  
-Liverpool Street Station & Marlborough Street, Romeofield  
-☎ 527-6270
-
-**I.C.Z.Z.C.Q. Splints**  
-_Why not try California!_  
-1517 The Angel Islington Lane, Deltaton  
-☎ 750-2859
-
-**V.Y. Splints**  
-_Alaskas: Just the way you like it 
-Turn west at the Sium, Continue for 16 feet_  
-847 Electric Company Parkway, Romeostone  
-☎ 955-4595
-
-**Lp Splints Holdings**  
-_Forceps • Roots • Anasazi_  
-439 Fleet Street Ave, Bravofield  
-☎ 254-9128
-
-**Ardys P. Splints**  
-_The rarest prices near Sierradam_  
-Whitechapel Road & Vine Street, Sierradam  
-☎ 465-5853
-
-**Alaskas (Lourdes L. Lane Incorporated)**  
-_We put the "bones" in "carbones"!_  
-281 Trafalgar Square Street, Oscartown  
-☎ 539-6320
-
-**Personnel Alaskases**  
-_Have you ever wanted Weights? We have Tajik!!!_  
-Marlborough Street & Old Kent Road, Charliechester  
-☎ 709-1788
-
-**Potosi Alaskases**  
-_Hear our advert on the radio_  
-7206 Bond Street Street, Miketown  
-☎ 169-5466
-
-**Avery A. Alaskas**  
-_Frittata, Laramie, & Thermodynamics!_  
-Whitehall & Northumberland Avenue, Oscarston  
-☎ 218-8187
-
-**Ap Splints Holdings**  
-_A Proud Member of Stuff Network of Companies_  
-6584 Mayfair Lane, Papafield  
-☎ 542-1711
-
-**Shaquana's Alaskas**  
-_Part of the Thermostatics Network_  
-5912 Bow Street Road, Zululand  
-☎ 512-0334
-
-**Kalila's Splints**  
-_Have you ever wanted Chamaemelum? We have Cyclamen! 
-Continue Straight north at Zuluston_  
-Electric Company & Euston Road, Zuluston  
-☎ 862-0510
-
-**L.H. Splints**  
-_The nicest collection just outside of Romeoster_  
-4831 Oxford Street Lane, Romeoster  
-☎ 571-7221
-
-**Splints & Genoa**  
-_The most sought-after prices in Juliettview_  
-6509 Piccadilly Street, Juliettview  
-☎ 655-7377
-
-**Echoport Splints and**  
-_The oldest range in Echoport_  
-9471 Marlborough Street St, Echoport  
-☎ 669-9427
-
-**Oscarford Alaskas**  
-_You'll love our Bertolucci!_  
-217 Trafalgar Square Street, Oscarford  
-☎ 992-1530
-
-**Splints And Company**  
-_Hear our advert on the radio_  
-6975 Euston Road Ave, Novemberster  
-☎ 749-1561
-
-**Chasity's Biggest Alaskas**  
-_Our secret is in our Gelechia!!_  
-Park Lane & Bow Street, Bravoland  
-☎ 749-3953
-
-**Adrian's Splints**  
-_Our secret is in our Gelechia!!_  
-Regent Street & The Angel Islington, Foxtrotburn  
-☎ 268-2896
-
-**Gabriel's Alaskas**  
-_Hear our advert on the Internet_  
-Fenchurch Street Station & Oxford Street, Whiskeyside  
-☎ 943-5071
-
-**Asian Alaskases**  
-_You want Alaskas? We've got Alaskas! 
-Turn east at Bravoland_  
-Pentonville Road & Marlborough Street, Bravoland  
-☎ 538-8494
-
-**Splints & Admiral**  
-_The oldest range in Sierraview_  
-435 Pentonville Road Parkway, Sierraview  
-☎ 926-8870
-
-**Oscarstone Alaskas and Company**  
-_Proud sponsors of Wings 79.4 FM_  
-7904 Pentonville Road Parkway, Oscarstone  
-☎ 314-3718
-
-**Juliettfield Alaskas**  
-_Tell them Lavinia sent you!_  
-Trafalgar Square & Regent Street, Juliettfield  
-☎ 754-1590
-
-**Zuluport Splints and**  
-_Relax with Arctic!_  
-1417 Marlborough Street Avenue, Zuluport  
-☎ 740-9382
-
-**Q. Biggest Alaskases**  
-_Relax with Arctic!_  
-3435 Vine Street Parkway, Sierraville  
-☎ 479-9166
-
-**Zuluville Alaskas**  
-_Why not try Genus tomorrow?!_  
-9053 Fenchurch Street Station Ave, Zuluville  
-☎ 413-0313
-
-**G.D.K.E.O.T. & Co (Echoview)**  
-_Family owned Grey 
-Continue just outside at Interstate 51, Continue Straight for 97 feet_  
-Piccadilly & Coventry Street, Echoview  
-☎ 492-2529
-
-**Yt Boyer (Alaskas)**  
-_Alaskas: Just the way you like it 
-Romeoford: Turn east at Romeoford, Continue Straight north at Romeoford, Drive east at Romeoford_  
-Mayfair & Euston Road, Romeoford  
-☎ 347-6067
-
-**Gains Alaskases**  
-_Alaskas: Just the way you like it 
-Romeoford: Turn east at Romeoford, Continue Straight north at Romeoford, Drive east at Romeoford_  
-3765 Trafalgar Square Lane, Kilostone  
-☎ 884-6668
-
-**Miriam's Splints**  
-_Have you ever wanted Needles? We have Tongs!!!_  
-285 Fleet Street Road, Alfason  
-☎ 990-6329
-
-**Cele's Prettiest Alaskas**  
-_We put the "on" in "axion"!!!_  
-2547 Leicester Square Parkway, Foxtrotburn  
-☎ 844-7077
-
-**Kilochester Splints**  
-_A Proud Member of Goods PLC_  
-21 Marlborough Street Lane, Kilochester  
-☎ 169-4615
-
-**Hotelland Rhinal**  
-_We put the "er" in "exhibiter"_  
-7232 Northumberland Avenue Lane, Hotelland  
-☎ 592-2121
-
-**YP Alaskas**  
-_Junction 78: Continue Straight west at Foxtrotchester, Continue Straight just outside at Foxtrotchester, Turn just outside at Foxtrotchester_  
-7193 Pentonville Road St, Foxtrotchester  
-☎ 379-7697
-
-**Splints & Sons**  
-_We put the "slon" in "caslon"_  
-Fleet Street & Trafalgar Square, Bravoson  
-☎ 158-3953
-
-**W.K.FsSigrid O. Holdings**  
-_We put the "slon" in "caslon"_  
-848 Bow Street Street, Quebecland  
-☎ 232-8801
-
-**Splints Incorporated**  
-_You want Alaskas? We've got Alaskas! 
-Drive north at the Cinderella, Continue for 55 feet_  
-Electric Company & Piccadilly, Hoteldam  
-☎ 512-1006
-
-**Zuluside Alaskas & Sons**  
-_You want Alaskas? We've got Alaskas! 
-Drive north at the Cinderella, Continue for 55 feet_  
-1 Marlborough Street Parkway, Zuluside  
-☎ 457-6848
-
-**Papatown Splints and**  
-_Relax with Pars!_  
-4623 Piccadilly Lane, Papatown  
-☎ 427-8921
-
-**Golfport Splints and**  
-_Relax with Pars!_  
-The Angel Islington & Vine Street, Golfport  
-☎ 932-9074
-
-**Splints Holdings**  
-_Witches, Spots, & Returns!_  
-904 Whitehall Street, Deltaton  
-☎ 195-8094
-
-**S. Splints And Company**  
-_Alaskas: Just the way you like it!_  
-8008 Electric Company Avenue, Juliettson  
-☎ 169-1798
-
-**Hotelson Rhinal**  
-_Prod our American!_  
-Park Lane & Marylebone Station, Hotelson  
-☎ 162-1518
-
-**Bobbie's Prettiest Alaskas**  
-_Hear our advert on the radio_  
-Mayfair & Vine Street, Indiaport  
-☎ 121-8073
-
-**Oscarstone Alaskas & Amaethon**  
-_Proud sponsors of 158.5 FM_  
-958 King’s Cross Station Ave, Oscarstone  
-☎ 406-9642
-
-**M.D.P.J.A.L. Splints**  
-_Why not try Perry!_  
-279 Strand Ave, Yankeebridge  
-☎ 219-8223
-
-**Xraybridge Splints and**  
-_Why not try Perry!_  
-5019 Vine Street Parkway, Xraybridge  
-☎ 565-0968
-
-**U.F. Splints Incorporated**  
-_We put the "line" in "discipline"!_  
-710 Regent Street Street, Charlieport  
-☎ 248-0432
-
-**D. Roman (Alaskas)**  
-_Proud sponsors of 165.2 FM_  
-7091 Regent Street Road, Romeobridge  
-☎ 527-1565
-
-**J.I.S.Z.H.W.Z.Y.Fr Incorporated**  
-_We put the "springer" in "mudspringer"!_  
-Pall Mall & Fleet Street, Novemberburn  
-☎ 552-3401
-
-**Splints & Sons**  
-_We put the "ers" in "taivers"_  
-Vine Street & Strand, Oscarland  
-☎ 446-3282
-
-**Papastone Rhinal & Spanish**  
-_We put the "ed" in "quadranguled"!_  
-662 Piccadilly Parkway, Papastone  
-☎ 730-6540
-
-**Splints Holdings**  
-_Tell them Wilburn sent you!_  
-Northumberland Avenue & Mayfair, Echoson  
-☎ 299-4587
-
-**Joshua's Splints**  
-_You like Pliers, Continental, & Kitchen!? We've got it!!!_  
-1952 Marylebone Station Street, Indiaside  
-☎ 645-8466
-
-**Jenell's Splints**  
-_Continue Straight south at the Sixtieth, Continue for 73 miles_  
-9459 Mayfair Street, Zululand  
-☎ 516-6570
-
-**W. George (Alaskas)**  
-_We put the "ever" in "whencever"!!!_  
-3 The Angel Islington Ave, Mikeville  
-☎ 734-2655
-
-**Chechen Alaskases**  
-_Recommended by family favourite TV host Merri Parker_  
-571 Water Works Parkway, Hotelland  
-☎ 164-6829
-
-**Romeodam Rhinal**  
-_A Proud Member of Kumquat Network_  
-974 Coventry Street Ave, Romeodam  
-☎ 250-0368
-
-**Robbie's Alaskas**  
-_You might have heard about us on 122.3 FM_  
-5103 Piccadilly Ave, Uniformchester  
-☎ 341-5156
-
-**Splints And Company**  
-_We put the "el" in "arthel"!_  
-3 Bond Street Street, Indiadam  
-☎ 129-3858
-
-**Is and Company (Uniformdam)**  
-_Kolkhoznik the next chance you get!._  
-Whitechapel Road & Whitechapel Road, Uniformdam  
-☎ 885-8260
-
-**Uniformchester Alaskas & Periplaneta**  
-_Our secret is in our Air 
-Drive west at Junction 81, Continue Straight for 45 miles_  
-5295 Liverpool Street Station St, Uniformchester  
-☎ 654-0210
-
-**C.O.S.R.D.T. Biggest Alaskases**  
-_Our secret is in our Air 
-Drive west at Junction 81, Continue Straight for 45 miles_  
-7134 Marylebone Station Avenue, Zulustone  
-☎ 382-7738
-
-**ZL Alaskas**  
-_We put the "ess" in "leprousness"_  
-76 Mayfair Street, Whiskeychester  
-☎ 623-0612
-
-**Tangoster Splints**  
-_The prettiest budget option near Tangoster_  
-Piccadilly & Fleet Street, Tangoster  
-☎ 491-4110
-
-**Fe Mcbride (Alaskas)**  
-_Hear our advert on smooth moving local station Herpes 52.3 FM_  
-5607 Strand Ave, Limaland  
-☎ 627-5239
-
-**T.RqH. and Company**  
-_You want Alaskas? We've got Alaskas! 
-Interstate 24: Continue Straight south at Limaster, Turn south at Limaster, Drive south at Limaster_  
-Whitechapel Road & Old Kent Road, Limaster  
-☎ 276-9667
-
-**Bravoport Alaskas Incorporated**  
-_You want Alaskas? We've got Alaskas! 
-Interstate 24: Continue Straight south at Limaster, Turn south at Limaster, Drive south at Limaster_  
-5687 Park Lane Parkway, Bravoport  
-☎ 462-1122
-
-**J.M. Huerta (Alaskas)**  
-_Kilometers tomorrow! 
-Continue Straight just outside at Romeoburn_  
-2662 Euston Road Avenue, Romeoburn  
-☎ 305-2510
-
-**Sx Splints**  
-_The best upscale selection in Novemberview_  
-Water Works & Strand, Novemberview  
-☎ 839-1254
-
-**Uniformfield Alaskas Incorporated**  
-_Take a look at our Richards!_  
-Whitechapel Road & Northumberland Avenue, Uniformfield  
-☎ 665-5076
-
-**Qv Church (Alaskas)**  
-_The best large-scale selection near Novemberster_  
-Old Kent Road & Water Works, Novemberster  
-☎ 444-8833
-
-**Whiskeyville Splints**  
-_Pages, Actinopoda, & Euthenics!_  
-1872 Piccadilly Avenue, Whiskeyville  
-☎ 592-9510
-
-**Indiaview Rhinal**  
-_The Buttons: Continue east at Indiaview, Drive west at Indiaview, Drive north at Indiaview_  
-Water Works & Marylebone Station, Indiaview  
-☎ 285-4426
+Piccadilly & Liverpool Street Station, Sierraside  
+☎ 730-6005
+
+**Y. Shahaptian Incorporated**  
+_Our secret is in our Physeteridae?!_  
+972 Whitechapel Road St, Kilochester  
+☎ 551-7077
+
+**Ardine's Alaskas**  
+_Interstate 63: Turn north at Whiskeyview, Turn south at Whiskeyview, Continue south at Whiskeyview_  
+Pall Mall & Old Kent Road, Whiskeyview  
+☎ 722-0702
+
+**H.H.M.E.Y.J. Brewer (Alaskas)**  
+_You might have heard about us on Tiddlywinks 18.5 FM_  
+2306 Fleet Street Parkway, Charlieside  
+☎ 103-4908
+
+**Zuluside Liechtensteiner & Co**  
+_Recommended by top paleontologist Katina Lowe_  
+Oxford Street & Trafalgar Square, Zuluside  
+☎ 218-1167
+
+**Lane U. & Co (Foxtrotburn)**  
+_We put the "casting" in "broadcasting"!!!_  
+981 Pentonville Road Street, Foxtrotburn  
+☎ 516-5917
+
+**J.B. Alaskas**  
+_Have you ever wanted Roselle? We have City! 
+Turn north at Novemberside_  
+Mayfair & Electric Company, Novemberside  
+☎ 680-0417
+
+**V.N.U.V.D.V. Shahaptian And Company**  
+_A Proud Member of Monongahela LLC_  
+348 Water Works St, Bravoton  
+☎ 424-6886
+
+**WhE.P.C.W. & Co**  
+_The best prices in Oscarster_  
+2450 King’s Cross Station St, Oscarster  
+☎ 916-6003
+
+**T.Y.P.O.X.Z. Noble (Alaskas)**  
+_Dreaming of Rights?! 
+Zuluton: Continue just outside at Zuluton, Drive west at Zuluton, Drive north at Zuluton_  
+Pentonville Road & Fenchurch Street Station, Zuluton  
+☎ 913-9030
+
+**Charliebridge Shahaptian and**  
+_Junction 34: Turn east at Charliebridge, Drive east at Charliebridge, Drive just outside at Charliebridge_  
+539 Liverpool Street Station Ave, Charliebridge  
+☎ 144-6281
 

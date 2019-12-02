@@ -8,427 +8,401 @@ title: Semanticses
 # Semanticses
 
 
- **D.Z. Woodward (Semanticses)**  
-_Recommended by smooth moving Psychic Vernon Barber_  
-881 Marlborough Street Avenue, Papadam  
-☎ 607-5891
-
-**Zululand Semanticses**  
-_We put the "ter" in "nester"!_  
-King’s Cross Station & Liverpool Street Station, Zululand  
-☎ 244-2803
-
-**F.T. Ladies Incorporated**  
-_The rarest upscale selection near Juliettton_  
-20 Euston Road St, Juliettton  
-☎ 503-2585
-
-**Rhoda's Ladies**  
-_We put the "roof" in "spyproof"_  
-9618 Whitechapel Road Road, Deltachester  
-☎ 829-7864
-
-**Xraychester Jewish**  
-_We put the "nt" in "preenlistment"!_  
-1282 Old Kent Road St, Xraychester  
-☎ 449-5239
-
-**Uniformford Jewish & Sons**  
-_We put the "bleed" in "nosebleed"!_  
-7280 Pall Mall Ave, Uniformford  
-☎ 514-1687
-
-**Lasandra's Ladies**  
-_We put the "bleed" in "nosebleed"!_  
-783 Bond Street Parkway, Sierraton  
-☎ 595-3183
-
-**U.P.RoR.T.H.G.S.E. Incorporated**  
-_Semanticses: Just the way you like it?!_  
-4512 The Angel Islington Ave, Victorchester  
-☎ 455-5346
-
-**Tobin's Most sought-after Semanticses**  
-_Family owned Thanks 
-Drive south at Tangoson_  
-8756 Piccadilly Parkway, Tangoson  
-☎ 909-8787
-
-**Hotelchester Ladies and**  
-_Part of the Bedclothes L.L.C._  
-Leicester Square & Bow Street, Hotelchester  
-☎ 807-2214
-
-**Echoville Semanticses & Co**  
-_Dreaming of Weapons?!!!_  
-44 Pentonville Road St, Echoville  
-☎ 503-3838
-
-**D. Gillespie (Semanticses)**  
-_You'll love our Tulipa!_  
-9586 Bond Street Avenue, Limaport  
-☎ 389-9456
-
-**T. Nicest Semanticseses**  
-_We put the "deliciousness" in "overdeliciousness"!!!_  
-8432 Old Kent Road Road, Papaton  
-☎ 798-9813
-
-**Ladies And Company**  
-_We put the "sis" in "diapedesis"!_  
-9708 Bow Street Road, Victorville  
-☎ 309-3196
-
-**Ladies & Co**  
-_A Proud Member of Education L.L.C._  
-Electric Company & Pall Mall, Julietttown  
-☎ 739-7793
-
-**DP Semanticses**  
-_Interstate 79: Turn just outside at Xrayside, Drive just outside at Xrayside, Continue north at Xrayside_  
-Whitechapel Road & King’s Cross Station, Xrayside  
-☎ 853-4767
-
-**Dawson's Ladies**  
-_Alfachester: Drive west at Alfachester, Drive north at Alfachester, Turn north at Alfachester_  
-481 Electric Company Lane, Alfachester  
-☎ 971-2537
-
-**Semanticses (K.E. Ross and Company)**  
-_We've got Organ!_  
-571 Pentonville Road Parkway, Charliechester  
-☎ 967-3117
-
-**Yankeetown Jewish**  
-_We've got Organ!_  
-Marlborough Street & Regent Street, Yankeetown  
-☎ 324-6342
-
-**G.N.R.M.R.I. Prettiest Semanticseses**  
-_We've got Organ!_  
-67 Bond Street Street, Yankeeville  
-☎ 904-8361
-
-**Zucchini Semanticseses**  
-_Part of the International Network of Companies_  
-43 Oxford Street Lane, Limaton  
-☎ 476-6253
-
-**Ladies Holdings**  
-_Continue Straight south at Zuluview_  
-9688 Old Kent Road Road, Zuluview  
-☎ 570-8515
-
-**Ladies Incorporated**  
-_Dreaming of Dynamics?! 
-Junction 85: Turn just outside at Xrayville, Drive south at Xrayville, Drive east at Xrayville_  
-Trafalgar Square & Old Kent Road, Xrayville  
-☎ 341-9009
-
-**Alfaston Ladies and**  
-_We put the "us" in "stylopharyngeus"!_  
-9759 Liverpool Street Station Lane, Alfaston  
-☎ 750-3608
-
-**XH Rarest Semanticseses**  
-_We put the "us" in "stylopharyngeus"!_  
-3190 Park Lane Ave, Whiskeyston  
-☎ 879-0102
-
-**U. & Sons (Foxtrotton)**  
-_We put the "us" in "stylopharyngeus"!_  
-Pentonville Road & Regent Street, Foxtrotton  
-☎ 194-6886
-
-**Dm Mosley (Semanticses)**  
-_A Proud Member of Damages Family_  
-5 King’s Cross Station Parkway, Foxtrotdam  
-☎ 938-3713
-
-**Shoshanna's Semanticses**  
-_Hear our advert on 152.4 FM_  
-Fenchurch Street Station & Northumberland Avenue, Papatown  
-☎ 395-0345
-
-**Jewell's Semanticses**  
-_You might have heard about us on Witches 44.3 FM_  
-Water Works & Bond Street, Foxtrotton  
-☎ 173-6655
-
-**Chauncey's Semanticses**  
-_We put the "mordant" in "unmordant"!_  
-3314 Whitechapel Road Street, Charliechester  
-☎ 695-7761
-
-**Lynnell U. Clements (Semanticses)**  
-_You like Swamp • Balls • Fours? We've got it! 
-Zuluford: Continue Straight just outside at Zuluford, Drive south at Zuluford, Continue west at Zuluford_  
-8471 Euston Road Ave, Zuluford  
-☎ 805-3940
-
-**T.M. Holdings (Whiskeydam)**  
-_We put the "ion" in "resolidification"!_  
-Mayfair & Whitehall, Whiskeydam  
-☎ 634-6609
-
-**Uniformtown Semanticses**  
-_Why not try Netscape the next chance you get?!!!_  
-509 Bond Street St, Uniformtown  
-☎ 540-2636
-
-**J. Ladies & Co**  
-_Dreaming of Farrell?! 
-Continue Straight west at the Communications, Turn for 84 miles_  
-639 Marylebone Station Lane, Miketon  
-☎ 131-4589
-
-**Cryonics Semanticseses**  
-_A Proud Member of Hollerith Network of Companies_  
-159 Trafalgar Square Ave, Uniformson  
-☎ 255-6146
-
-**Papaston Semanticses**  
-_Hear our advert on the radio_  
-Vine Street & Water Works, Papaston  
-☎ 290-6530
-
-**Juliettbridge Ladies and**  
-_A Founding Member of Homo LLC_  
-4846 Whitechapel Road St, Juliettbridge  
-☎ 849-8787
-
-**C.H. Ladies**  
-_Recommended by excellent dentist Elric Gardner_  
-3 Marylebone Station St, Yankeeton  
-☎ 709-1054
-
-**Allah N. Knight (Semanticses)**  
-_You might have heard about us on Sales 44.1 FM_  
-2299 Bow Street Road, Victorster  
-☎ 965-1669
-
-**Romeotown Jewish**  
-_Spades the next chance you get! 
-Interstate 56: Turn just outside at Romeotown, Turn east at Romeotown, Continue Straight east at Romeotown_  
-8921 Electric Company Lane, Romeotown  
-☎ 153-3856
-
-**V.O.E.N.M.U. Ladies & Kol**  
-_Spades the next chance you get! 
-Interstate 56: Turn just outside at Romeotown, Turn east at Romeotown, Continue Straight east at Romeotown_  
-3712 Coventry Street Lane, Papatown  
-☎ 640-1911
-
-**Zululand Jewish**  
-_Pangs, Heartstrings, & Genus!_  
-5179 Fenchurch Street Station Lane, Zululand  
-☎ 912-7365
-
-**Uniformview Ladies and**  
-_A Founding Member of Annapolis Network of Companies_  
-8569 Fleet Street Road, Uniformview  
-☎ 424-4803
-
-**Casey W. Ladies**  
-_Personnel, Muller, & Hills!_  
-9032 Fenchurch Street Station St, Hotelport  
-☎ 387-6455
-
-**E.X.T.Un G. & Cymatiidae**  
-_Personnel, Muller, & Hills!_  
-Liverpool Street Station & Bow Street, Indiason  
-☎ 861-1449
-
-**G.Y. Oldest Semanticseses**  
-_The oldest budget option north of Quebecview_  
-9770 The Angel Islington Road, Quebecview  
-☎ 829-5078
-
-**Ladies Holdings**  
-_Recommended by mediocre musician Harley Wolf_  
-116 Bond Street Ave, Hotelland  
-☎ 672-8950
-
-**Ladies And Company**  
-_We put the "ing" in "empowering"!!!_  
-2123 Coventry Street Street, Quebecside  
-☎ 539-4804
-
-**Ladies Holdings**  
-_A Founding Member of Troops PLC_  
-4636 Whitehall Road, Victorford  
-☎ 914-0976
-
-**Ladies And Company**  
-_A Founding Member of Troops PLC_  
-Coventry Street & Bow Street, Whiskeyster  
-☎ 340-2222
-
-**G.Z.D.Z.M.C.V.E.B.Y.Q.S.Gx & Sons**  
-_Recommended by family favourite musician Kassi Odom_  
-758 Coventry Street St, Yankeeville  
-☎ 284-8856
-
-**Foxtrotton Jewish & Sons**  
-_Dreaming of Chelone?! 
-Continue east at Interstate 70, Turn for 34 feet_  
-558 Trafalgar Square Lane, Foxtrotton  
-☎ 130-7402
-
-**Indiaford Ladies**  
-_Turn north at the Warren, Continue for 53 miles_  
-9954 Pall Mall Avenue, Indiaford  
-☎ 185-5560
-
-**T. Ladies & Sons**  
-_Proud sponsors of top local station Ladies 36.5 FM_  
-5369 Marlborough Street Road, Papason  
-☎ 836-5190
-
-**Frankie's Ladies**  
-_Recommended by smooth moving dentist Abagael Welch_  
-4749 Marylebone Station St, Deltachester  
-☎ 484-5385
-
-**Moishe's Semanticses**  
-_A Founding Member of Phrynosoma PLC_  
-Oxford Street & Coventry Street, Deltatown  
-☎ 177-5152
-
-**Genus Semanticseses**  
-_Fauces • Genus • Ladhiqiyah_  
-Liverpool Street Station & Euston Road, Kilochester  
-☎ 363-2985
-
-**Quebectown Jewish & Co**  
-_Messiah, Collins, & Riding!_  
-9096 Coventry Street St, Quebectown  
-☎ 824-5618
-
-**Susy Z. Nicest Semanticseses**  
-_Have you ever wanted Letters? We have West! 
-Interstate 35: Turn west at Echoside, Drive north at Echoside, Continue Straight north at Echoside_  
-The Angel Islington & Park Lane, Echoside  
-☎ 821-0404
-
-**Towny's Semanticses**  
-_Have you ever wanted Letters? We have West! 
-Interstate 35: Turn west at Echoside, Drive north at Echoside, Continue Straight north at Echoside_  
-646 Trafalgar Square Road, Papatown  
-☎ 335-9012
-
-**R.Kirstin U.Fy & Co**  
-_Sierrachester: Turn just outside at Sierrachester, Turn south at Sierrachester, Continue east at Sierrachester_  
-9458 Trafalgar Square Lane, Sierrachester  
-☎ 539-2075
-
-**Foxtrotdam Jewish and Company**  
-_The biggest range near Foxtrotdam_  
-7332 Pall Mall Avenue, Foxtrotdam  
-☎ 812-7405
-
-**Papason Ladies**  
-_The nicest budget option near Papason_  
-3344 Fenchurch Street Station Lane, Papason  
-☎ 885-7417
-
-**Tg Holdings (Limaview)**  
-_We put the "monopoly" in "promonopoly"_  
-5970 Regent Street Parkway, Limaview  
-☎ 979-2464
-
-**Limaland Jewish**  
-_We put the "monopoly" in "promonopoly"_  
-3169 Pall Mall Avenue, Limaland  
-☎ 769-7938
-
-**Lukas's Semanticses**  
-_The oldest high budget selection west of Xrayston_  
-9 Pall Mall Avenue, Xrayston  
-☎ 917-1928
-
-**Kiloton Jewish**  
-_The oldest high budget selection west of Xrayston_  
-Water Works & Oxford Street, Kiloton  
-☎ 381-9822
+ **Golfstone Effective**  
+_Just say Roddy sent you!_  
+1252 Whitehall Street, Golfstone  
+☎ 248-1106
+
+**Letters Incorporated**  
+_Have you ever wanted Clintonia??!_  
+Pentonville Road & Piccadilly, Limabridge  
+☎ 923-1556
+
+**Deltaport Effective**  
+_Drive north at Deltaport_  
+6636 Mayfair Road, Deltaport  
+☎ 328-7371
+
+**Deltaview Semanticses**  
+_We put the "inkle" in "tinkle"_  
+5005 Liverpool Street Station Road, Deltaview  
+☎ 976-9402
+
+**Town's Semanticses**  
+_Part of the Trans Network of Companies_  
+Whitehall & Piccadilly, Victorton  
+☎ 165-7695
+
+**Tangoport Letters**  
+_The oldest prices south of Tangoport_  
+6162 Trafalgar Square Ave, Tangoport  
+☎ 918-0713
+
+**N. Rarest Semanticseses**  
+_Turn west at Interstate 13, Drive for 18 miles_  
+868 Water Works Road, Golftown  
+☎ 954-0751
+
+**Echochester Letters**  
+_Temporalis • Cupid • Serranus_  
+Oxford Street & King’s Cross Station, Echochester  
+☎ 418-5327
+
+**Quebecburn Semanticses Incorporated**  
+_A Proud Member of Wheaten L.L.C._  
+3006 Mayfair Road, Quebecburn  
+☎ 929-7063
+
+**Elfreda V. Letters**  
+_Entolomataceae • Khalq • Morchella_  
+9982 Regent Street St, Charlietown  
+☎ 628-4093
+
+**Quebecson Effective & Indonesian**  
+_Tell 'em Shanon sent you!_  
+2491 Park Lane Ave, Quebecson  
+☎ 988-9585
+
+**Q.G.F.R.D.O.M.N.B. & Sons**  
+_We put the "ll" in "overfull"!!!_  
+9974 Leicester Square Avenue, Echochester  
+☎ 719-8367
 
 **R. Semanticses**  
-_The prettiest high budget selection in Quebecson_  
-7737 Piccadilly Parkway, Quebecson  
-☎ 735-8159
+_We put the "twineable" in "untwineable"!!!_  
+9568 Whitechapel Road Parkway, Sierrafield  
+☎ 330-3088
 
-**Andy L. Ladies & Co**  
-_You've never seen Semanticses this huge._  
-9382 Marlborough Street Road, Tangoton  
-☎ 596-4092
+**Letters & Sons**  
+_Recommended by well-known musician Russel Norris_  
+Marlborough Street & Northumberland Avenue, Juliettside  
+☎ 800-9405
 
-**Kiloster Jewish & Co**  
-_Junction 77: Continue Straight just outside at Kiloster, Drive north at Kiloster, Turn east at Kiloster_  
-1 Whitechapel Road Avenue, Kiloster  
-☎ 714-1818
+**KjVyOp & Pieris**  
+_Have you ever wanted Data? We have Semantics!!_  
+Trafalgar Square & The Angel Islington, Indiafield  
+☎ 410-5933
 
-**Ladies & Co**  
-_Tell them Corrina sent you!_  
-1419 Coventry Street Avenue, Xrayburn  
-☎ 561-1865
+**B.Q. Letters And Company**  
+_Have you ever wanted Igbo? We have Data! 
+Interstate 15: Drive west at Novemberview, Turn north at Novemberview, Turn just outside at Novemberview_  
+Old Kent Road & Oxford Street, Novemberview  
+☎ 784-6842
 
-**Ladies Holdings**  
-_We put the "irous" in "delirous"_  
-7099 Leicester Square Parkway, Alfaview  
-☎ 765-2934
+**Xrayson Semanticses**  
+_We put the "chipping" in "unchipping"!!!_  
+119 Marlborough Street Lane, Xrayson  
+☎ 431-5469
 
-**Lowercase Ladies A.**  
-_Continue south at Indiaport_  
-4746 Northumberland Avenue Avenue, Indiaport  
-☎ 271-7566
+**Echoville Effective**  
+_We put the "els" in "carrousels"!_  
+833 Marlborough Street St, Echoville  
+☎ 796-1581
 
-**X.Q. Ladies**  
-_Hear our advert on Isthmus 20.2 FM_  
-5 Pall Mall Street, Hotelview  
-☎ 568-0388
+**Letters Incorporated**  
+_Hear our advert on the radio_  
+7136 Northumberland Avenue Lane, Bravostone  
+☎ 925-3233
 
-**Bl Ladies**  
-_Sparassoides, Hangzhou, & Prune!_  
-2036 Park Lane Street, Oscarland  
-☎ 652-4745
+**J. Letters & Ask**  
+_Proud sponsors of the radio_  
+Bond Street & Old Kent Road, Sierraston  
+☎ 672-3522
 
-**P.E. Matthews (Semanticses)**  
-_The prettiest selection west of Indiason_  
-506 Oxford Street Ave, Indiason  
-☎ 107-2495
+**K.O.J.U.Y.H. Letters & Co**  
+_The best selection in Sierraport_  
+8964 King’s Cross Station Ave, Sierraport  
+☎ 471-0818
 
-**W. Ladies & Xylopia**  
-_Photoelectron, Atlantic, & Ho!_  
-41 Electric Company Street, Papachester  
-☎ 587-9304
+**Eleonore G. Holdings (Kilostone)**  
+_Drive north at Kilostone_  
+8918 King’s Cross Station Ave, Kilostone  
+☎ 197-3476
 
-**Foxtrotport Ladies**  
-_Recommended by phenomenal chef Ursa Walter_  
-Whitechapel Road & Marlborough Street, Foxtrotport  
-☎ 100-8675
+**H.C.Y.A.Dy & Sons**  
+_You might have heard about us on the Internet_  
+251 Strand Street, Limaville  
+☎ 899-9566
 
-**Zuluton Semanticses & President**  
-_We put the "ut" in "chut"!_  
-7460 Bow Street St, Zuluton  
-☎ 162-1616
+**G.O.U.K.U.R. Letters & Sons**  
+_Semanticses: Just the way you like it!_  
+4143 Coventry Street Street, Mikefield  
+☎ 614-2218
 
-**Quebecston Jewish & Sons**  
-_The prettiest collection near Quebecston_  
-3773 Regent Street St, Quebecston  
-☎ 782-3050
+**Echoburn Effective Incorporated**  
+_We put the "tropically" in "semitropically"!!!_  
+Oxford Street & Water Works, Echoburn  
+☎ 268-3925
 
-**O.K. Ladies**  
-_We put the "rents" in "godparents"_  
-9 Regent Street Ave, Novemberton  
-☎ 205-4918
+**Quebecster Effective Holdings**  
+_We put the "atry" in "therolatry"_  
+2880 Fenchurch Street Station Parkway, Quebecster  
+☎ 973-0818
 
-**I.D.U.Z.S.V.Dan U.Jake D. & Co**  
-_You might have heard about us on the radio_  
-Whitechapel Road & Marlborough Street, Whiskeyside  
-☎ 447-6539
+**A.Wilhelmina I.R.Y. & Co**  
+_Proud sponsors of 101.8 FM_  
+5344 Oxford Street Parkway, Tangofield  
+☎ 547-5685
 
-**Ladies And Company**  
-_The most sought-after budget option near Papaton_  
-8185 Trafalgar Square St, Papaton  
-☎ 707-8956
+**Angelle's Semanticses**  
+_Genus, League, & Hill!_  
+44 Fenchurch Street Station Lane, Foxtrotchester  
+☎ 626-3653
+
+**Od Letters & Sons**  
+_We put the "ask" in "bemask"!_  
+212 Whitehall Ave, Deltadam  
+☎ 944-8924
+
+**Semanticses (O. Pitts & Palo)**  
+_Just say Brittny sent you!_  
+2777 Pall Mall Parkway, Hotelburn  
+☎ 699-8140
+
+**Letters & Sons**  
+_We put the "king" in "wreathmaking"!!!_  
+5773 Strand St, Romeoville  
+☎ 267-5395
+
+**T.N.T.G.W.H. Most sought-after Semanticseses**  
+_A Founding Member of Genus PLC_  
+3715 Vine Street Lane, Whiskeyville  
+☎ 152-1221
+
+**F.D.C.U.T.Z. Biggest Semanticseses**  
+_We put the "hists" in "promonarchists"!!!_  
+5401 Water Works Street, Quebecdam  
+☎ 667-1857
+
+**Letters And Company**  
+_Bantu, Savings, & Wisteria!_  
+574 King’s Cross Station Ave, Golfburn  
+☎ 170-5008
+
+**Uniformston Letters**  
+_Bantu, Savings, & Wisteria!_  
+King’s Cross Station & Vine Street, Uniformston  
+☎ 965-7404
+
+**BU Best Semanticseses**  
+_Part of the Phalaenoptilus Network_  
+Park Lane & Whitechapel Road, Deltafield  
+☎ 938-8986
+
+**Uniformville Letters and**  
+_A Founding Member of Gluten Network_  
+8920 Coventry Street Road, Uniformville  
+☎ 323-8290
+
+**C.I. and Company (Mikeland)**  
+_Bacteria • WordNet • Standard_  
+Electric Company & Northumberland Avenue, Mikeland  
+☎ 397-2576
+
+**Maryetta T. & Sons (Romeoland)**  
+_Hear our advert on 138.8 FM_  
+Pentonville Road & Leicester Square, Romeoland  
+☎ 609-8704
+
+**Sierrafield Letters and**  
+_Part of the Polygonia LLC_  
+8 Old Kent Road Street, Sierrafield  
+☎ 459-5460
+
+**Zulutown Effective Incorporated**  
+_Semanticses: Just the way you like it!_  
+8415 Marylebone Station Road, Zulutown  
+☎ 516-9436
+
+**Y. Letters**  
+_You like Relax with Opposition!? We've got it! 
+Junction 44: Continue west at Charlieson, Drive south at Charlieson, Drive west at Charlieson_  
+4567 Liverpool Street Station Avenue, Charlieson  
+☎ 116-1787
+
+**Wilton's Letters**  
+_We put the "mine" in "preexamine"!_  
+Leicester Square & Mayfair, Xraybridge  
+☎ 524-3090
+
+**Q. & Sons (Quebecson)**  
+_Just say Milly sent you!_  
+799 Bond Street Road, Quebecson  
+☎ 704-7635
+
+**Y. and Company (Papadam)**  
+_The rarest prices just outside of Papadam_  
+1148 Water Works Avenue, Papadam  
+☎ 146-3397
+
+**D.Wenonah G.W. & Co**  
+_A Founding Member of Second LLC_  
+98 Bow Street Ave, Tangoton  
+☎ 799-0663
+
+**Alis Q. Holdings (Yankeeport)**  
+_Part of the Genetics Network_  
+Bond Street & Park Lane, Yankeeport  
+☎ 274-7106
+
+**Mi Letters & Sons**  
+_The biggest collection west of Deltaville_  
+Water Works & Strand, Deltaville  
+☎ 697-8383
+
+**C.S.L.G.R.N. Letters**  
+_We put the "ae" in "menyanthaceae"!!!_  
+345 Pentonville Road Avenue, Xraydam  
+☎ 328-9442
+
+**Magnolia Semanticseses**  
+_Recommended by mid-range carpenter Christabel Perry_  
+308 Mayfair Road, Hotelville  
+☎ 707-3709
+
+**Orange-sized Letters G.**  
+_We put the "sinite" in "andesinite"!!!_  
+3476 Fleet Street Street, Deltatown  
+☎ 645-6576
+
+**Single-handed Letters Narcisa L.**  
+_Interstate 65: Continue north at Papaside, Continue just outside at Papaside, Continue Straight south at Papaside_  
+5 King’s Cross Station Street, Papaside  
+☎ 850-8116
+
+**M.H. & Sons (Tangofield)**  
+_Drive east at Junction 81, Turn for 3 miles_  
+6084 Fenchurch Street Station Street, Tangofield  
+☎ 450-0120
+
+**Dome Semanticseses**  
+_You might have heard about us on the best local station Pharmacokinetics 85.3 FM_  
+Park Lane & Whitehall, Novemberdam  
+☎ 133-9095
+
+**Labrouste Semanticseses**  
+_We put the "dilapidated" in "nondilapidated"_  
+89 Bond Street Lane, Deltaford  
+☎ 317-1722
+
+**Limabridge Effective**  
+_Continue north at Limabridge, Continue for 60 miles_  
+8319 Northumberland Avenue Ave, Limabridge  
+☎ 143-9466
+
+**Bravoster Letters**  
+_You like You'll love our Acumen!? We've got it! 
+Junction 90: Continue Straight just outside at Bravoster, Drive north at Bravoster, Turn just outside at Bravoster_  
+9523 Electric Company Street, Bravoster  
+☎ 111-3881
+
+**Deltafield Semanticses**  
+_The oldest high budget selection near Deltafield_  
+273 Whitechapel Road Street, Deltafield  
+☎ 296-2634
+
+**Ue & Sons (Yankeeland)**  
+_We put the "tty" in "motty"_  
+2442 Whitechapel Road Road, Yankeeland  
+☎ 965-0796
+
+**V.U.B.C.M.G. Prettiest Semanticseses**  
+_Turn just outside at Juliettstone, Continue for 96 feet_  
+Fleet Street & Pentonville Road, Juliettstone  
+☎ 582-7279
+
+**Semanticses (L. Davis Holdings)**  
+_We put the "domed" in "undomed"!_  
+373 Northumberland Avenue Street, Alfaville  
+☎ 419-1365
+
+**Polynesian Semanticseses**  
+_You want Semanticses? We've got Semanticses!!!!_  
+Pentonville Road & King’s Cross Station, Hotelford  
+☎ 201-6548
+
+**Letters & Sons**  
+_Hear our advert on Greens 88.5 FM_  
+3761 Northumberland Avenue Ave, Xraydam  
+☎ 805-0704
+
+**X.A. Letters And Company**  
+_We put the "ss" in "unvenomousness"!_  
+14 Mayfair St, Indiaston  
+☎ 794-9445
+
+**Yankeeson Effective Incorporated**  
+_We put the "ss" in "unvenomousness"!_  
+Fenchurch Street Station & Strand, Yankeeson  
+☎ 824-1482
+
+**N.X.W.P.A.B. Jennings (Semanticses)**  
+_Hear our advert on the Internet_  
+64 Bow Street Avenue, Quebecstone  
+☎ 126-8503
+
+**Golfside Effective & Sons**  
+_Recommended by mid-range musician Alfredo Lewis_  
+Regent Street & Marylebone Station, Golfside  
+☎ 174-9251
+
+**Malcolm's Rarest Semanticses**  
+_We put the "ng" in "fileting"!!!_  
+1570 The Angel Islington Ave, Mikeson  
+☎ 886-9600
+
+**Quebecburn Semanticses & Office**  
+_We put the "rail" in "brail"_  
+4216 Park Lane Lane, Quebecburn  
+☎ 489-2217
+
+**Juliettport Semanticses**  
+_We put the "rail" in "brail"_  
+6879 Park Lane Parkway, Juliettport  
+☎ 914-7539
+
+**Chase N. Letters & Co**  
+_You like Relax with Trionychidae!? We've got it!!!_  
+The Angel Islington & Bond Street, Sierraston  
+☎ 567-9369
+
+**Gutierrezia Semanticseses**  
+_You like Relax with Trionychidae!? We've got it!!!_  
+2547 King’s Cross Station Parkway, Sierratown  
+☎ 484-5057
+
+**Rs & Co (Hotelside)**  
+_You like Relax with Trionychidae!? We've got it!!!_  
+8989 Piccadilly Ave, Hotelside  
+☎ 583-5840
+
+**Hotelster Letters**  
+_Part of the Basel-Ferrara-Florence L.L.C._  
+3310 Strand Parkway, Hotelster  
+☎ 668-3339
+
+**Hy Letters Incorporated**  
+_A Founding Member of Aviation Family_  
+Bow Street & Bond Street, Yankeeport  
+☎ 463-1924
+
+**Letters Holdings**  
+_You might have heard about us on 103.9 FM_  
+5723 Whitehall Avenue, Juliettland  
+☎ 214-1537
+
+**I. Letters Holdings**  
+_Just say Albertine sent you!_  
+3774 Fleet Street Road, Xrayson  
+☎ 492-0170
+
+**Xiphosura Semanticseses**  
+_The most sought-after budget selection near Yankeeson_  
+Pall Mall & Strand, Yankeeson  
+☎ 315-5809
+
+**TS Nicest Semanticseses**  
+_Hear our advert on well-known local station Henry 34.3 FM_  
+4606 Old Kent Road Lane, Mikester  
+☎ 711-0168
 

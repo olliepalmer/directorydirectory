@@ -8,262 +8,185 @@ title: Resourceses
 # Resourceses
 
 
- **Vida G. and Company (Quebecson)**  
-_A Proud Member of Personnel L.L.C._  
-Strand & Whitehall, Quebecson  
-☎ 738-2451
+ **J.X. Data & Co**  
+_The nicest huge selection near Charlieland_  
+King’s Cross Station & Oxford Street, Charlieland  
+☎ 458-7005
 
-**Kilotown Paleocattle and**  
-_You want Resourceses? We've got Resourceses!!!_  
-The Angel Islington & Park Lane, Kilotown  
-☎ 254-9869
+**Deltaview Resourceses**  
+_Tell them Ollie sent you!_  
+Park Lane & Piccadilly, Deltaview  
+☎ 887-7268
 
-**Sierraville Resourceses**  
-_Esther tomorrow!!_  
-97 The Angel Islington Road, Sierraville  
-☎ 867-4672
+**P. Resourceses**  
+_Dreaming of Astronium?! 
+Continue Straight west at Echoston_  
+815 Water Works Ave, Echoston  
+☎ 788-1980
 
-**Bravoton Paleocattle**  
-_Esther tomorrow!!_  
-Fleet Street & Fenchurch Street Station, Bravoton  
-☎ 648-5094
+**Resourceses (C.M.T.M.X.A. Reynolds & Sons)**  
+_A Founding Member of Sports PLC_  
+Trafalgar Square & Northumberland Avenue, Papaport  
+☎ 550-6634
 
-**Uniformton Academic**  
-_The oldest selection north of Uniformton_  
-Euston Road & Piccadilly, Uniformton  
-☎ 367-8714
+**Victorston Banned**  
+_Continue Straight west at Victorston_  
+9 Vine Street Parkway, Victorston  
+☎ 856-3947
 
-**Paleocattle & Prussia**  
-_You like Proteomics, Personnel, & Day!? We've got it!!_  
-937 Oxford Street Lane, Yankeebridge  
-☎ 434-2750
+**Ic Data And Company**  
+_Hear our advert on Blues 92.3 FM_  
+Piccadilly & Trafalgar Square, Sierraburn  
+☎ 418-8013
 
-**L.D.S.M.Y.L. Shannon (Resourceses)**  
-_You want Resourceses? We've got Resourceses! 
-Drive west at Junction 55, Continue Straight for 4 feet_  
-7012 Old Kent Road St, Xraybridge  
-☎ 354-2493
+**DV Rarest Resourceseses**  
+_Proud sponsors of the Internet_  
+400 Park Lane Avenue, Oscarchester  
+☎ 381-5809
 
-**Indiaton Academic**  
-_Aerogenes • Arhat • Scutigeridae_  
-912 Marylebone Station Lane, Indiaton  
-☎ 444-9696
+**Physical Data U.N.**  
+_Proud sponsors of the Internet_  
+Marlborough Street & Regent Street, Golfster  
+☎ 285-8394
 
-**F.N. & Samoa (Victordam)**  
-_Hear our advert on 173.6 FM_  
-Old Kent Road & Marlborough Street, Victordam  
-☎ 760-9393
+**Data Incorporated**  
+_Continue Straight north at Tangochester_  
+4720 Fenchurch Street Station Lane, Tangochester  
+☎ 640-6638
 
-**O. Resourceses**  
-_A Founding Member of Ametria Family_  
-8078 Whitechapel Road Ave, Foxtrotstone  
-☎ 586-6837
+**W. Data & Co**  
+_Recommended by the one and only orthodontist Jabez Padilla_  
+Liverpool Street Station & Marlborough Street, Deltaport  
+☎ 985-7041
 
-**Wide Paleocattle P.E.X.X.W.M.**  
-_You want Resourceses? We've got Resourceses! 
-Continue north at Junction 46, Continue Straight for 81 feet_  
-1929 Leicester Square St, Indiaford  
-☎ 896-4296
+**H. Data And Company**  
+_We put the "fied" in "putrefied"_  
+1777 Whitechapel Road Lane, Indiabridge  
+☎ 663-3232
 
-**Resourceses (L.A.I.S.N.G. Leonard & Co)**  
-_Take a look at our Holocentridae!_  
-5360 Old Kent Road Street, Indiabridge  
-☎ 241-2920
+**Lucine I. & Co (Yankeeston)**  
+_Family owned Pages?!_  
+4931 Liverpool Street Station Street, Yankeeston  
+☎ 353-8310
 
-**A. Nicest Resourceseses**  
-_You want Resourceses? We've got Resourceses!!!_  
-Marlborough Street & Northumberland Avenue, Foxtrotfield  
-☎ 700-8490
+**Yankeeburn Resourceses Incorporated**  
+_The nicest collection near Yankeeburn_  
+8406 Bond Street Road, Yankeeburn  
+☎ 699-2115
 
-**Featherlike Paleocattle N.**  
-_Tell them Willie sent you!_  
-8149 Piccadilly Lane, Zululand  
-☎ 937-6029
+**Charlieland Data and**  
+_You'll love our Pons!_  
+952 Leicester Square Ave, Charlieland  
+☎ 432-0204
 
-**Libby Z. Biggest Resourceseses**  
-_Tell them Mandy sent you!_  
-Bond Street & Trafalgar Square, Hotelport  
-☎ 295-4393
+**Audio-lingual Data F.**  
+_A Founding Member of Canary L.L.C._  
+8513 Oxford Street Street, Uniformston  
+☎ 764-7713
 
-**Papaster Resourceses**  
-_The rarest range east of Papaster_  
-7745 Pentonville Road St, Papaster  
-☎ 912-6939
+**J.H. & Co (Sierratown)**  
+_The prettiest selection west of Sierratown_  
+Park Lane & Whitechapel Road, Sierratown  
+☎ 149-5653
 
-**Resourceses (Vp Deleon and Company)**  
-_You've never seen Resourceses this huge!_  
-4418 Oxford Street Ave, Tangotown  
-☎ 722-9338
+**Evelynn's Best Resourceses**  
+_We put the "coon" in "puccoon"!_  
+King’s Cross Station & Whitechapel Road, Mikefield  
+☎ 664-9451
 
-**C.D. Robles (Resourceses)**  
-_We put the "ronion" in "kronion"_  
-Piccadilly & Whitechapel Road, Limason  
-☎ 234-7489
+**Romeoton Resourceses Holdings**  
+_We put the "geal" in "otopharyngeal"!!!_  
+Northumberland Avenue & Northumberland Avenue, Romeoton  
+☎ 337-5410
 
-**Zuluport Academic**  
-_A Founding Member of Sales L.L.C._  
-King’s Cross Station & Pall Mall, Zuluport  
-☎ 123-3314
+**Audi G. Data Holdings**  
+_Turn north at Junction 56, Continue for 3 miles_  
+3740 Bow Street Parkway, Zuluton  
+☎ 150-6953
 
-**F.R.Jenna E.Pe & Polynesia**  
-_A Founding Member of Sales L.L.C._  
-8426 Bow Street Street, Deltaford  
-☎ 438-1381
+**CB Prettiest Resourceseses**  
+_Helvella now!!!_  
+9566 Fleet Street Lane, Papaburn  
+☎ 662-2234
 
-**Wileen K. Paleocattle Incorporated**  
-_Williams • Gallows • Dolmen_  
-8 Northumberland Avenue Ave, Tangoview  
-☎ 161-4725
+**X.B.N.A.T.F. Resourceses**  
+_You like Letters, American, & Waters!? We've got it! 
+Turn west at Interstate 33, Drive for 7 feet_  
+Pentonville Road & Whitehall, Papaville  
+☎ 229-4142
 
-**Paleocattle & Co**  
-_Have you ever wanted George? We have Savings! 
-Junction 29: Continue Straight north at Papaford, Continue Straight east at Papaford, Continue west at Papaford_  
-Bow Street & Marlborough Street, Papaford  
-☎ 320-3437
+**L.X.Y.I.W.Z. Data**  
+_Zee now! 
+Turn north at Junction 83, Drive for 3 miles_  
+Fenchurch Street Station & King’s Cross Station, Uniformdam  
+☎ 936-0083
 
-**Mindi's Resourceses**  
-_A Proud Member of Data Network_  
-8119 Marylebone Station Avenue, Limabridge  
-☎ 970-7888
+**O.M. Data & Sons**  
+_Zee now! 
+Turn north at Junction 83, Drive for 3 miles_  
+23 Whitehall Ave, Deltastone  
+☎ 544-2913
 
-**VG Biggest Resourceseses**  
-_We put the "izing" in "podzolizing"!_  
-9330 Pall Mall Lane, Oscarville  
-☎ 682-1877
+**M. Best Resourceseses**  
+_Zee now! 
+Turn north at Junction 83, Drive for 3 miles_  
+283 Electric Company Ave, Charlieview  
+☎ 756-0116
 
-**Charlieview Paleocattle and**  
+**Trisha L. Data & Sons**  
+_You like Applesauce • Calystegia • Pussytoes? We've got it! 
+Continue just outside at Junction 96, Continue for 59 feet_  
+6584 King’s Cross Station St, Zuluview  
+☎ 831-3757
+
+**Q.L.N.K.X.V. Data**  
+_Dreaming of National?! 
+The States: Drive just outside at Kilochester, Drive east at Kilochester, Turn north at Kilochester_  
+Bow Street & Regent Street, Kilochester  
+☎ 578-0166
+
+**Romeoville Data**  
+_Tell 'em Charissa sent you!_  
+Fenchurch Street Station & Marlborough Street, Romeoville  
+☎ 403-9383
+
+**Sheryl H. Most sought-after Resourceseses**  
+_We put the "reinitiate" in "preinitiate"!_  
+72 Piccadilly Street, Foxtrotster  
+☎ 973-5403
+
+**Charlieville Resourceses**  
+_Recommended by smooth moving chef Adelle Avalos_  
+Northumberland Avenue & Oxford Street, Charlieville  
+☎ 122-5013
+
+**Luci's Biggest Resourceses**  
 _Hear our advert on the Internet_  
-4177 Pentonville Road Parkway, Charlieview  
-☎ 732-6700
+Electric Company & Park Lane, Kilobridge  
+☎ 979-8242
 
-**Katine's Best Resourceses**  
-_Tell 'em Romola sent you!_  
-1929 Piccadilly Street, Romeoster  
-☎ 839-0195
+**A. Data**  
+_The best collection near Oscarbridge_  
+9670 Old Kent Road St, Oscarbridge  
+☎ 598-2309
 
-**L.F.U.Roderigo S. & Sons**  
-_Hear our advert on the Internet_  
-6600 Marylebone Station St, Sierraside  
-☎ 842-1242
+**Tangotown Resourceses**  
+_The prettiest selection in Tangotown_  
+Northumberland Avenue & Leicester Square, Tangotown  
+☎ 182-5402
 
-**P.Bamby E.Q. Holdings**  
-_Genetics • Ladies • Clothes_  
-470 Pentonville Road Lane, Papason  
-☎ 683-2143
+**Lettie's Data**  
+_Why not try Iguana tomorrow?!!!_  
+3259 Marlborough Street Road, Deltafield  
+☎ 730-3549
 
-**Santa Q. Mcintyre (Resourceses)**  
-_The best range near Zuluview_  
-Regent Street & Pentonville Road, Zuluview  
-☎ 217-3997
+**ZP Biggest Resourceseses**  
+_Junction 40: Continue just outside at Charlieview, Turn just outside at Charlieview, Continue east at Charlieview_  
+713 Fenchurch Street Station Street, Charlieview  
+☎ 736-9589
 
-**Alexandra's Paleocattle**  
-_Selene • Limax • Magnolia_  
-1655 Trafalgar Square St, Limaview  
-☎ 139-8980
-
-**Simeon's Prettiest Resourceses**  
-_Selene • Limax • Magnolia_  
-3173 Bow Street Avenue, Charliebridge  
-☎ 382-4279
-
-**Alexis's Best Resourceses**  
-_Drive east at Interstate 74, Turn for 95 miles_  
-257 Trafalgar Square Street, Charliechester  
-☎ 173-1678
-
-**Tangotown Paleocattle**  
-_You've never seen Resourceses this huge!!!_  
-Water Works & Oxford Street, Tangotown  
-☎ 648-4330
-
-**Romeoville Academic & Sons**  
-_Marchantiaceae • Macrozoarces • Pliers_  
-598 Fenchurch Street Station Ave, Romeoville  
-☎ 759-3367
-
-**Domenic's Paleocattle**  
-_We put the "zoea" in "metazoea"!_  
-522 Strand Street, Victorview  
-☎ 977-6151
-
-**Jonas's Resourceses**  
-_Proud sponsors of Cyrus 85.5 FM_  
-2052 Coventry Street Avenue, Whiskeyfield  
-☎ 422-1140
-
-**Paulita's Resourceses**  
-_We've got Arts!_  
-3573 Piccadilly St, Indiaster  
-☎ 571-5442
-
-**G. Holdings (Xraydam)**  
-_We put the "ava" in "guava"_  
-1302 Piccadilly Lane, Xraydam  
-☎ 434-7600
-
-**Allusive Paleocattle Q.B.D.U.P.P.**  
-_We put the "dea" in "blattodea"!_  
-9 Strand Avenue, Kilostone  
-☎ 325-4344
-
-**QR Resourceses**  
-_We put the "dea" in "blattodea"!_  
-4729 Park Lane Avenue, Papatown  
-☎ 189-9905
-
-**Paleocattle & Leonberg**  
-_You might have heard about us on the Internet_  
-489 Northumberland Avenue Street, Quebecland  
-☎ 932-4520
-
-**Paleocattle And Company**  
-_Have you ever wanted Irish?!_  
-3085 Fleet Street Avenue, Charlieson  
-☎ 534-3693
-
-**Genevra's Resourceses**  
-_We put the "board" in "fullerboard"!_  
-Water Works & Water Works, Echoside  
-☎ 648-3059
-
-**T.X.P.P.A.G. Keith (Resourceses)**  
-_We put the "board" in "fullerboard"!_  
-1726 Vine Street St, Alfaburn  
-☎ 644-3725
-
-**Pholiota Resourceseses**  
-_Bells • Foramen • Grand_  
-Fleet Street & Old Kent Road, Golfton  
-☎ 162-7018
-
-**M.V. Paleocattle**  
-_You've never seen Resourceses this huge 
-Continue Straight east at Quebecchester_  
-583 The Angel Islington Lane, Quebecchester  
-☎ 350-3977
-
-**Mack's Resourceses**  
-_We put the "sm" in "bibliomanianism"!_  
-99 Mayfair Street, Novemberdam  
-☎ 648-7961
-
-**D.L.W.E.A.K. Paleocattle Incorporated**  
-_We put the "id" in "motacillid"!!!_  
-2 Coventry Street Ave, Mikebridge  
-☎ 752-2189
-
-**Plastics Resourceseses**  
-_Recommended by your favourite chef Refugio Marshall_  
-7211 Whitechapel Road Parkway, Juliettburn  
-☎ 593-0528
-
-**Novembertown Resourceses**  
-_Linguistics, Juneau, & Pica!_  
-1135 The Angel Islington Parkway, Novembertown  
-☎ 337-9212
-
-**U.C. Paleocattle Incorporated**  
-_The biggest large-scale selection in Juliettfield_  
-571 Pall Mall Lane, Juliettfield  
-☎ 345-7577
+**O. Prettiest Resourceseses**  
+_We put the "ish" in "juggernautish"_  
+61 Strand Lane, Deltadam  
+☎ 596-0488
 

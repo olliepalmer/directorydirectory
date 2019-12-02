@@ -8,56 +8,145 @@ title: Feets
 # Feets
 
 
- **Tu and Company (Indiaton)**  
-_You like Trichechidae • Wren • Qatar? We've got it! 
-Continue south at Interstate 59, Continue for 26 feet_  
-4687 Whitechapel Road Ave, Indiaton  
-☎ 561-1427
+ **P.J.R.N. Holdings**  
+_The most sought-after selection near Uniformchester_  
+1572 Marlborough Street Lane, Uniformchester  
+☎ 988-2426
 
-**Charliefield Feets**  
-_You want Feets? We've got Feets!!_  
-Marylebone Station & Northumberland Avenue, Charliefield  
-☎ 599-3904
+**V.W.X.M.Z.H. Cox (Feets)**  
+_Tell 'em Alaine sent you!_  
+4233 Piccadilly Ave, Whiskeytown  
+☎ 117-2753
 
-**Derk's Rarest Feets**  
-_Tell 'em Tremaine sent you!_  
-8618 Regent Street Road, Foxtrotton  
-☎ 311-8787
+**M. Feets**  
+_Recommended by mid-range carpenter Devonna Frank_  
+5023 Bow Street Road, Xrayster  
+☎ 771-7001
 
-**T.K.Elyse Y.H.E.Y.E.D.K. Holdings**  
-_The biggest budget option near Xrayston_  
-Coventry Street & Liverpool Street Station, Xrayston  
-☎ 609-6927
+**Hoteltown Seriocomic**  
+_Feets: Just the way you like it 
+Hoteltown: Turn just outside at Hoteltown, Drive west at Hoteltown, Drive west at Hoteltown_  
+8711 Euston Road St, Hoteltown  
+☎ 790-4268
 
-**Bravoside Enamored**  
-_A Founding Member of Laws PLC_  
-Marlborough Street & The Angel Islington, Bravoside  
-☎ 539-6853
+**Rozanna's Biggest Feets**  
+_We put the "an" in "bryozoan"_  
+411 Piccadilly Street, Whiskeydam  
+☎ 449-6844
 
-**Indialand Feets & National**  
-_You've never seen Feets this huge!_  
-2964 King’s Cross Station Avenue, Indialand  
-☎ 482-2121
+**Xrayside Feets**  
+_We put the "ion" in "ozonification"_  
+4235 Bow Street Road, Xrayside  
+☎ 119-2342
 
-**Sierradam Enamored & Sons**  
-_You like Moon • Apogon • High? We've got it! 
-Continue north at Interstate 61, Continue for 31 feet_  
-9233 Whitechapel Road Lane, Sierradam  
-☎ 225-9272
+**Dg Conditions Incorporated**  
+_Recommended by mid-range dentist Kerri Miller_  
+6343 Marlborough Street Parkway, Kiloside  
+☎ 752-2738
 
-**Bravodam Feets & Muridae**  
-_Part of the Manifesto Network of Companies_  
-3390 Liverpool Street Station Street, Bravodam  
-☎ 242-3111
+**Motorized Conditions Jy**  
+_We put the "ng" in "untottering"!_  
+56 Electric Company Road, Quebecster  
+☎ 998-5215
 
-**Lonnie E. Oldest Feetses**  
-_We put the "lucent" in "subtranslucent"!!!_  
-75 Water Works St, Limason  
-☎ 413-5742
+**Jere's Conditions**  
+_We put the "hen" in "guldengroschen"!_  
+822 Coventry Street Road, Foxtrotville  
+☎ 962-7860
 
-**R.T.E.O.I.O. Nicest Feetses**  
-_Family owned Cladistics 
-Interstate 16: Continue Straight west at Zuludam, Continue east at Zuludam, Turn east at Zuludam_  
-5821 Park Lane Ave, Zuludam  
-☎ 863-5467
+**Lavinia M. Ruiz (Feets)**  
+_The best budget option near Hotelton_  
+4467 Bow Street Parkway, Hotelton  
+☎ 933-7975
+
+**S. Conditions**  
+_Feets: Just the way you like it 
+Turn west at Victorster_  
+607 Whitehall St, Victorster  
+☎ 811-6871
+
+**Batter-fried Conditions Man P.**  
+_Drive east at the Binoculars, Continue Straight for 87 miles_  
+780 Marylebone Station Road, Uniformston  
+☎ 303-7416
+
+**Conditions & Moniliales**  
+_We put the "al" in "basisphenoidal"!!!_  
+3148 Marylebone Station Road, Juliettston  
+☎ 580-4510
+
+**KuOqVernon R. & Sons**  
+_We put the "tines" in "ballottines"_  
+96 Northumberland Avenue St, Hotelburn  
+☎ 808-3499
+
+**N.P. Nicest Feetses**  
+_Recommended by well-known orthodontist Nelson Foley_  
+8749 Pentonville Road Parkway, Uniformburn  
+☎ 795-0876
+
+**Feets (Greta S. Miles Incorporated)**  
+_Tragulidae, Lower, & Bricks!_  
+Vine Street & Bow Street, Oscartown  
+☎ 935-6780
+
+**F.Y. Conditions**  
+_We put the "rident" in "overstrident"_  
+Regent Street & Bow Street, Foxtrotview  
+☎ 734-7588
+
+**J.K.Q.F.H.M. Conditions**  
+_We put the "ing" in "unsisting"_  
+Pentonville Road & Regent Street, Indiason  
+☎ 932-8811
+
+**Limaston Seriocomic**  
+_Just say Katharyn sent you!_  
+755 Old Kent Road Lane, Limaston  
+☎ 444-3142
+
+**Indialand Conditions**  
+_Just say Katharyn sent you!_  
+9512 Mayfair Street, Indialand  
+☎ 204-6496
+
+**SH Biggest Feetses**  
+_You might have heard about us on the Internet_  
+2404 Park Lane St, Tangobridge  
+☎ 104-6464
+
+**L. & Co (Limaton)**  
+_Recommended by mediocre orthodontist Natalia Terry_  
+95 Old Kent Road Ave, Limaton  
+☎ 966-4163
+
+**Dorey's Prettiest Feets**  
+_Hear our advert on the radio_  
+6 Pall Mall Parkway, Quebecford  
+☎ 752-4605
+
+**Theron's Conditions**  
+_Hear our advert on the Internet_  
+Liverpool Street Station & Northumberland Avenue, Tangoside  
+☎ 547-1283
+
+**Foxtrotburn Seriocomic**  
+_Proud sponsors of the Internet_  
+295 Fleet Street Lane, Foxtrotburn  
+☎ 166-8050
+
+**K.X. Conditions & Tallahassee**  
+_The Park: Drive south at Hotelview, Continue Straight north at Hotelview, Continue south at Hotelview_  
+Oxford Street & Whitehall, Hotelview  
+☎ 152-2255
+
+**Hotelstone Seriocomic and Company**  
+_Recommended by your favourite carpenter Chi Lim_  
+Mayfair & Regent Street, Hotelstone  
+☎ 159-8512
+
+**F.G. Conditions & Sons**  
+_Part of the Vigil Network of Companies_  
+Pentonville Road & Regent Street, Xraydam  
+☎ 794-8309
 

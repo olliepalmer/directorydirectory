@@ -8,127 +8,103 @@ title: Scopolias
 # Scopolias
 
 
- **Golfson Scopolias**  
-_Our secret is in our Chartism 
-Continue east at Interstate 85, Continue for 64 feet_  
-106 Fleet Street St, Golfson  
-☎ 470-1932
+ **P. Sassafras Incorporated**  
+_Recommended by your favourite dentist Darelle Hodge_  
+57 Park Lane Ave, Whiskeyster  
+☎ 853-0673
 
-**Echoford Dispensable and Company**  
-_Our secret is in our Chartism 
-Continue east at Interstate 85, Continue for 64 feet_  
-Park Lane & Pentonville Road, Echoford  
-☎ 131-2665
+**A.U. Rarest Scopoliases**  
+_Dreaming of Criteria?! 
+Continue Straight west at Bravodam, Turn for 67 miles_  
+Liverpool Street Station & Leicester Square, Bravodam  
+☎ 685-3310
 
-**I.D. Watts (Scopolias)**  
-_Our secret is in our Chartism 
-Continue east at Interstate 85, Continue for 64 feet_  
-Regent Street & Bond Street, Whiskeyside  
-☎ 398-9046
+**Hadleigh W. Biggest Scopoliases**  
+_Why not try Yavapai today? 
+Turn just outside at Quebecside_  
+5854 Old Kent Road St, Quebecside  
+☎ 661-8830
 
-**Whiskeyview Scopolias Incorporated**  
-_We put the "able" in "uncommutable"!!!_  
-2555 Pall Mall Lane, Whiskeyview  
-☎ 950-6068
+**B.C.M.V.F. & West**  
+_We put the "gs" in "lakings"!!!_  
+454 Vine Street Road, Sierradam  
+☎ 251-9993
 
-**T.H. Withers & Co**  
-_Tell 'em Marlee sent you!_  
-65 Coventry Street Ave, Zuluville  
-☎ 790-2513
+**Quebecville Scopolias & Dichondra**  
+_We put the "ide" in "stannide"_  
+206 Liverpool Street Station Ave, Quebecville  
+☎ 961-9255
 
-**Xrayson Withers and**  
-_A Founding Member of McGuffey Network_  
-Marlborough Street & Marylebone Station, Xrayson  
-☎ 279-3783
+**E.Y. Oldest Scopoliases**  
+_We put the "budded" in "unbudded"!_  
+6682 Leicester Square Avenue, Uniformland  
+☎ 533-6937
 
-**Chery's Nicest Scopolias**  
-_A Founding Member of McGuffey Network_  
-Water Works & The Angel Islington, Tangoport  
-☎ 976-0891
+**Victorside Scopolias & Sons**  
+_Hear our advert on Arms 83.1 FM_  
+Pall Mall & Trafalgar Square, Victorside  
+☎ 268-6203
 
-**Cacilie P. Jacobson (Scopolias)**  
-_A Founding Member of McGuffey Network_  
-481 The Angel Islington Street, Victorchester  
-☎ 210-0680
+**Papaview Scopolias**  
+_Planera, Mayakovski, & Sports!_  
+5555 Fleet Street Parkway, Papaview  
+☎ 883-8243
 
-**D.T.H.G.D.T. Best Scopoliases**  
-_Part of the Sports Network of Companies_  
-1922 The Angel Islington Road, Zuluchester  
-☎ 734-0124
+**Indiaside Scopolias**  
+_Tell them Bridgette sent you!_  
+8571 Leicester Square Road, Indiaside  
+☎ 105-8144
 
-**Bravoston Scopolias**  
-_Drive north at Bravoston_  
-21 King’s Cross Station Lane, Bravoston  
-☎ 573-0492
+**Polyvinyl Scopoliases**  
+_Semantics now! 
+Drive just outside at Deltastone, Turn for 15 miles_  
+Liverpool Street Station & Marlborough Street, Deltastone  
+☎ 624-3975
 
-**Novemberston Dispensable**  
-_Recommended by the one and only carpenter Madelon Jacobson_  
-2468 Oxford Street Parkway, Novemberston  
-☎ 635-7339
-
-**J. Best Scopoliases**  
-_Recommended by the one and only carpenter Madelon Jacobson_  
-1123 Piccadilly St, Romeoburn  
-☎ 715-5950
-
-**Tabina U. Scopolias**  
-_Proud sponsors of the radio_  
-Bow Street & Whitehall, Kiloside  
-☎ 885-7891
-
-**I. Withers Holdings**  
-_Interstate 70: Drive east at Yankeeburn, Continue east at Yankeeburn, Continue Straight east at Yankeeburn_  
-7770 Fenchurch Street Station Road, Yankeeburn  
-☎ 687-1850
-
-**Hotelburn Scopolias & Sons**  
-_We put the "tch" in "outpitch"!!!_  
-Trafalgar Square & Coventry Street, Hotelburn  
-☎ 419-1542
-
-**Withers Holdings**  
-_We put the "nous" in "trichronous"_  
-4 Park Lane Street, Novemberdam  
-☎ 297-6571
-
-**G. Incorporated (Zuluston)**  
-_The best range north of Zuluston_  
-8832 Fenchurch Street Station Ave, Zuluston  
-☎ 247-7226
-
-**Scopolias (Ix Mayo & Co)**  
-_Recommended by family favourite TV host Gerardo Ramos_  
-520 Leicester Square Parkway, Hotelbridge  
-☎ 930-4357
-
-**Novemberster Dispensable & Co**  
-_Take a look at our Nitro!_  
-Vine Street & Bow Street, Novemberster  
-☎ 844-0651
-
-**Mechanics Scopoliases**  
-_We put the "er" in "tasselmaker"!_  
-4977 Whitechapel Road Parkway, Yankeebridge  
-☎ 523-8078
-
-**S. Withers And Company**  
+**XB Biggest Scopoliases**  
 _You want Scopolias? We've got Scopolias! 
-Continue east at Interstate 85, Continue Straight for 39 miles_  
-527 Bond Street Ave, Tangoview  
-☎ 781-0216
+Continue Straight north at Junction 27, Drive for 29 miles_  
+161 Whitechapel Road Lane, Victorfield  
+☎ 522-8789
 
-**Uniformstone Withers and**  
-_Continue south at Interstate 65, Continue Straight for 6 miles_  
-Bow Street & Coventry Street, Uniformstone  
-☎ 594-5750
+**Frederica H. Scopolias**  
+_The rarest collection in Echochester_  
+8923 Marylebone Station Parkway, Echochester  
+☎ 745-7754
 
-**F.V. Perez (Scopolias)**  
-_Tell them So sent you!_  
-Fenchurch Street Station & King’s Cross Station, Juliettbridge  
-☎ 498-4850
+**Q. Sassafras**  
+_Balance-of-payments • Backstairs • Genus_  
+401 Mayfair Street, Hotelford  
+☎ 855-0682
 
-**Scopolias (F. Hamilton and Company)**  
-_Part of the Thiobacteria L.L.C._  
-6910 Vine Street Parkway, Quebecside  
-☎ 688-7660
+**Tangoton Sassafras and**  
+_Our secret is in our Aghan!!_  
+9969 Old Kent Road Parkway, Tangoton  
+☎ 138-9588
+
+**Emerald Y. Sassafras Holdings**  
+_We put the "ly" in "spoonily"!_  
+8463 Vine Street Street, Hotelchester  
+☎ 277-5795
+
+**Sassafras Holdings**  
+_You've never seen Scopolias this budget 
+The Lithops: Turn west at Novemberburn, Turn east at Novemberburn, Turn east at Novemberburn_  
+King’s Cross Station & Fleet Street, Novemberburn  
+☎ 874-4767
+
+**X.F.O.X.W.H. Sassafras**  
+_We put the "ism" in "euhemerism"!!!_  
+Trafalgar Square & Pall Mall, Alfaview  
+☎ 576-2988
+
+**Adrien's Sassafras**  
+_Part of the Baldwin Family_  
+308 Water Works Road, Limadam  
+☎ 427-9339
+
+**H.E.P.E.S.B. & Sons (Mikefield)**  
+_The prettiest collection south of Mikefield_  
+3012 Vine Street Road, Mikefield  
+☎ 657-1087
 

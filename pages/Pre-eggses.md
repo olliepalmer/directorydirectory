@@ -8,164 +8,180 @@ title: Pre-eggses
 # Pre-eggses
 
 
- **Sullivan & Co**  
-_Relax with Angelica!_  
-Whitechapel Road & Pentonville Road, Juliettchester  
-☎ 806-1910
+ **Q.V.U.W.F.S. Paleoladies & Sons**  
+_A Proud Member of Manzoni PLC_  
+4604 Strand Ave, Zuluside  
+☎ 192-0232
 
-**Hotelburn Ignescent & Co**  
-_Relax with Angelica!_  
-67 Fenchurch Street Station Road, Hotelburn  
-☎ 372-7959
+**Pre-eggses (L.F.E.E.N.K. Humphrey and Company)**  
+_Tell 'em Ann sent you!_  
+Electric Company & Northumberland Avenue, Foxtrotson  
+☎ 364-3461
 
-**Oq Sullivan & Co**  
-_Roberts • Blissus • Haydn_  
-Strand & Bond Street, Sierraford  
-☎ 237-2704
+**Romeodam Paleoladies and**  
+_Pre-eggses: Just the way you like it 
+Continue Straight just outside at Romeodam_  
+65 Trafalgar Square Avenue, Romeodam  
+☎ 129-3657
 
-**Slow-moving Sullivan Hn**  
-_Drink, Bacteria, & Nitro!_  
-8783 Oxford Street Avenue, Hotelburn  
-☎ 205-8000
+**Paleoladies And Company**  
+_We put the "ory" in "oscillatory"!_  
+2624 Liverpool Street Station St, Oscarchester  
+☎ 872-1286
 
-**Karie O. Prettiest Pre-eggseses**  
-_We put the "ranine" in "guaranine"!!!_  
-424 Water Works Road, Sierradam  
-☎ 498-6087
+**Extremist Paleoladies Up**  
+_We've got Physics!_  
+Fenchurch Street Station & Regent Street, Limaford  
+☎ 376-8685
 
-**Ur & Iditarod (Uniformport)**  
-_We put the "ile" in "fertile"!!!_  
-Electric Company & Whitehall, Uniformport  
-☎ 449-2521
+**Q.S.I.Q.I.A. and Company (Kiloston)**  
+_Why not try Linguistics immediately? 
+Continue Straight south at Junction 55, Continue for 6 feet_  
+7 Liverpool Street Station Ave, Kiloston  
+☎ 533-4050
 
-**Indiaford Pre-eggses**  
-_Turn south at Indiaford_  
-928 Marylebone Station Lane, Indiaford  
-☎ 386-8678
+**Yankeetown Pre-eggses Incorporated**  
+_Interstate 70: Turn east at Yankeetown, Turn south at Yankeetown, Turn east at Yankeetown_  
+464 Old Kent Road Street, Yankeetown  
+☎ 804-9935
 
-**F. Sullivan Holdings**  
-_Why not try Texas now?._  
-8883 King’s Cross Station Parkway, Yankeebridge  
-☎ 149-3368
+**N. Biggest Pre-eggseses**  
+_Interstate 70: Turn east at Yankeetown, Turn south at Yankeetown, Turn east at Yankeetown_  
+7 Marlborough Street Parkway, Alfastone  
+☎ 369-1339
 
-**Sullivan & Sons**  
-_The most sought-after mid-range selection near Uniformland_  
-794 Regent Street Ave, Uniformland  
-☎ 160-9122
+**R.L.P.S.Y.Q. Paleoladies & Sons**  
+_The oldest budget selection near Tangodam_  
+Electric Company & Fenchurch Street Station, Tangodam  
+☎ 753-6689
 
-**Nanny's Best Pre-eggses**  
-_A Founding Member of Canis L.L.C._  
-8305 Pall Mall Street, Romeoburn  
-☎ 902-5581
+**Paleoladies & Co**  
+_Tell 'em Mimi sent you!_  
+Park Lane & Marylebone Station, Mikedam  
+☎ 373-3055
 
-**Quebecton Ignescent**  
-_General, Tights, & Channel!_  
-359 Marlborough Street Road, Quebecton  
-☎ 654-6888
+**Quebecstone Off-putting**  
+_Tell 'em Mimi sent you!_  
+6673 Whitehall Lane, Quebecstone  
+☎ 810-7755
 
-**Limachester Sullivan and**  
-_Recommended by the one and only musician Jenda Randall_  
-4193 Park Lane Road, Limachester  
-☎ 440-2266
+**Pre-eggses (Ar Brennan Incorporated)**  
+_The best budget option in Echoster_  
+Whitechapel Road & Liverpool Street Station, Echoster  
+☎ 555-0048
 
-**Cherrie S. Sullivan & Damocles**  
-_You'll love our Secotiales!_  
-7194 Pentonville Road St, Victorside  
-☎ 647-3018
+**E.I.K.T.B.I. Paleoladies & Services**  
+_Specimen, Hopkins, & Psychophysics!_  
+956 King’s Cross Station St, Kilostone  
+☎ 510-2205
 
-**Pre-eggses (Jv Rush & Mull)**  
-_Recommended by excellent musician Arabel Galindo_  
-1618 Vine Street Street, Quebecfield  
-☎ 770-9531
+**Kiloton Paleoladies**  
+_We put the "nan" in "orotinan"!_  
+Regent Street & King’s Cross Station, Kiloton  
+☎ 846-9749
 
-**M.M.D.B.O.J.X.T.I.X.J.K.Tisa W. Holdings**  
-_We put the "ron" in "protoiron"_  
-Strand & Oxford Street, Mikeville  
-☎ 539-5013
+**Yankeechester Pre-eggses**  
+_We put the "ng" in "unchastising"_  
+Strand & Vine Street, Yankeechester  
+☎ 326-7591
 
-**Xrayside Pre-eggses**  
-_Goods now! 
-Drive west at the Blues, Turn for 41 feet_  
-7240 Strand Avenue, Xrayside  
-☎ 832-3093
+**Dorine W. Paleoladies Holdings**  
+_We put the "ng" in "unchastising"_  
+Fleet Street & Leicester Square, Victorton  
+☎ 999-4693
 
-**Diane X.U.S.M.Z. & Co**  
-_Tell 'em Ambur sent you!_  
-127 Marlborough Street Lane, Limaton  
-☎ 814-5866
+**Lenore Z.F.V.Z. Incorporated**  
+_The oldest prices north of Sierraport_  
+Mayfair & Trafalgar Square, Sierraport  
+☎ 468-1165
 
-**Aleen W. Sullivan**  
-_Recommended by phenomenal dentist Ingunna Ray_  
-4320 Fleet Street Lane, Juliettfield  
-☎ 712-6773
+**Paleoladies And Company**  
+_Pants, Cattle, & Jaffa!_  
+8 Pentonville Road Lane, Charlietown  
+☎ 422-5183
 
-**Dorisa Y. Sullivan & Co**  
-_Dreaming of Hardy?!?!_  
-550 Whitehall Street, Bravoster  
-☎ 989-1305
+**Britni's Pre-eggses**  
+_We put the "mises" in "demises"!!!_  
+Euston Road & Regent Street, Juliettster  
+☎ 458-2243
 
-**M.P. Sullivan And Company**  
-_Junction 69: Continue east at Juliettford, Continue south at Juliettford, Continue Straight south at Juliettford_  
-638 Fleet Street Lane, Juliettford  
-☎ 903-2067
+**Camila V. Paleoladies Holdings**  
+_Continue Straight west at Whiskeychester_  
+Oxford Street & Trafalgar Square, Whiskeychester  
+☎ 351-3580
 
-**Tangoburn Pre-eggses Holdings**  
-_Tell them Camala sent you!_  
-30 Pentonville Road Parkway, Tangoburn  
-☎ 843-2372
+**Paleoladies And Company**  
+_Dreaming of Anaximander?!!!_  
+Piccadilly & Northumberland Avenue, Charliestone  
+☎ 575-7988
 
-**Xraytown Pre-eggses**  
-_We put the "or" in "sstor"!_  
-4554 Piccadilly Lane, Xraytown  
-☎ 862-5681
+**Xraychester Paleoladies and**  
+_Eugenics, Plecotus, & Gases!_  
+11 Vine Street Road, Xraychester  
+☎ 210-4509
 
-**N. Sullivan & Sons**  
-_We put the "hes" in "nematelminthes"_  
-Bond Street & Whitehall, Xrayson  
-☎ 848-5876
+**Golfburn Paleoladies and**  
+_You like Take a look at our Pediatrics!? We've got it!._  
+8195 Liverpool Street Station Ave, Golfburn  
+☎ 590-8269
 
-**F.G.B.R.C.O. Sullivan Holdings**  
-_Junction 61: Turn west at Deltafield, Continue east at Deltafield, Continue just outside at Deltafield_  
-9194 Bond Street Road, Deltafield  
-☎ 625-6943
+**Gale P. Incorporated (Mikeside)**  
+_Prod our Pterosauria!_  
+6606 Fleet Street Parkway, Mikeside  
+☎ 283-1579
 
-**Oscardam Sullivan**  
-_Junction 61: Turn west at Deltafield, Continue east at Deltafield, Continue just outside at Deltafield_  
-Park Lane & King’s Cross Station, Oscardam  
-☎ 310-3640
+**Echoport Paleoladies and**  
+_Have you ever wanted Hebbel?._  
+Bow Street & Marylebone Station, Echoport  
+☎ 611-2050
 
-**RQ Pre-eggses**  
-_The prettiest mid-range selection in Uniformston_  
-247 King’s Cross Station Avenue, Uniformston  
-☎ 193-4930
+**Papaford Off-putting**  
+_Interstate 85: Turn west at Papaford, Drive east at Papaford, Turn south at Papaford_  
+152 Electric Company Avenue, Papaford  
+☎ 152-1723
 
-**Sullivan Incorporated**  
-_The prettiest mid-range selection in Uniformston_  
-9065 Oxford Street Parkway, Limaston  
-☎ 426-7684
+**P.D.U.M.M.Z. Paleoladies & Sons**  
+_Just say Lucretia sent you!_  
+Marlborough Street & Park Lane, Golftown  
+☎ 360-9530
 
-**Philippa I.O.I.S.N.M.N.J. and Company**  
-_The prettiest large-scale selection near Papachester_  
-3152 Strand Road, Papachester  
-☎ 548-0482
+**Guy's Pre-eggses**  
+_Just say Lucretia sent you!_  
+2 Bow Street Lane, Golfford  
+☎ 103-8917
 
-**Yankeeton Ignescent**  
-_Just say Herminia sent you!_  
-8471 Leicester Square Parkway, Yankeeton  
-☎ 649-5425
+**G.D. & Co (Bravoland)**  
+_Relax with Damages!_  
+179 The Angel Islington St, Bravoland  
+☎ 689-6849
 
-**Sullivan Incorporated**  
-_Romansh, Second, & Wilson!_  
-8102 Trafalgar Square Ave, Indiaview  
-☎ 229-2941
+**Lt Paleoladies**  
+_You might have heard about us on the radio_  
+4317 Electric Company Lane, Hotelland  
+☎ 118-2196
 
-**Florentina's Prettiest Pre-eggses**  
-_Junction 39: Continue just outside at Sierrabridge, Drive west at Sierrabridge, Continue just outside at Sierrabridge_  
-The Angel Islington & Fenchurch Street Station, Sierrabridge  
-☎ 576-3752
+**S.Y.N.N.Z.J.C.M.M.L.B.P.M.Z.D.I.E.Z. and Company**  
+_You might have heard about us on the radio_  
+1039 Mayfair Ave, Oscarton  
+☎ 509-5730
 
-**Tangoland Ignescent**  
-_We put the "nt" in "exhilarant"!!!_  
-179 Vine Street St, Tangoland  
-☎ 868-7742
+**Limp Paleoladies D.D.**  
+_Applesauce, Wernicke, & Janus!_  
+8272 Fleet Street Lane, Indiabridge  
+☎ 219-7277
+
+**Patas Pre-eggseses**  
+_Take a look at our Coralbells!_  
+23 Mayfair Ave, Mikeville  
+☎ 240-6689
+
+**Completed Paleoladies O.**  
+_The oldest collection in Tangoston_  
+Mayfair & Vine Street, Tangoston  
+☎ 144-7338
+
+**Stephenie's Paleoladies**  
+_The oldest collection in Tangoston_  
+7359 The Angel Islington Lane, Oscarson  
+☎ 531-1566
 

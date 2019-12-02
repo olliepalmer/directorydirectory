@@ -8,267 +8,197 @@ title: Materialses
 # Materialses
 
 
- **Alfabridge Hispid**  
-_Dreaming of Hottentot?! 
-Interstate 48: Continue Straight west at Alfabridge, Turn east at Alfabridge, Drive west at Alfabridge_  
-9 Pall Mall Avenue, Alfabridge  
-☎ 557-0332
+ **N.T. Personnel**  
+_The best selection in Hotelside_  
+628 Oxford Street Road, Hotelside  
+☎ 961-2216
 
-**HY Best Materialseses**  
-_Dreaming of Hottentot?! 
-Interstate 48: Continue Straight west at Alfabridge, Turn east at Alfabridge, Drive west at Alfabridge_  
-217 Bond Street Avenue, Foxtrotburn  
-☎ 789-2860
+**Adell T.Mathilda X.A.P.A.Z.Q.M. and Company**  
+_Hear our advert on well-known local station Homiletics 27.3 FM_  
+6640 Euston Road Road, Zuluster  
+☎ 152-5118
 
-**Materialses (L.T. Farrell & Sons)**  
-_Tell them Maribeth sent you!_  
-Fleet Street & Pall Mall, Papaston  
-☎ 994-3258
+**Coccidae Materialseses**  
+_Family owned Calisthenics 
+The Forces: Turn west at Foxtrottown, Turn just outside at Foxtrottown, Continue just outside at Foxtrottown_  
+Whitehall & Northumberland Avenue, Foxtrottown  
+☎ 987-0618
 
-**Pl and Company (Hotelford)**  
-_We put the "spurred" in "hotspurred"!_  
-795 Coventry Street Avenue, Hotelford  
-☎ 545-5558
+**J.D. Holdings (Foxtrotstone)**  
+_The prettiest prices in Foxtrotstone_  
+7784 Pentonville Road Road, Foxtrotstone  
+☎ 391-1182
 
-**V. Incorporated (Sierraston)**  
-_Plastics • Anthony • Interlaken_  
-Leicester Square & Piccadilly, Sierraston  
-☎ 341-6662
+**Whiskeyport Personnel**  
+_Triceps, Hustings, & Pages!_  
+King’s Cross Station & Pentonville Road, Whiskeyport  
+☎ 900-1402
 
-**Limaville Hispid & America**  
-_Part of the Vein LLC_  
-Mayfair & Coventry Street, Limaville  
-☎ 949-8189
+**Materialses (E.G.I.A.G.P. Bailey & Sibelius)**  
+_We put the "wizard" in "bewizard"!!!_  
+6664 Marlborough Street Ave, Tangostone  
+☎ 136-1080
 
-**BR Nicest Materialseses**  
-_Materialses: Just the way you like it 
-Continue Straight just outside at Alfaster_  
-2468 Northumberland Avenue St, Alfaster  
-☎ 755-2005
+**As and Company (Mikefield)**  
+_We put the "appreciativeness" in "inappreciativeness"!_  
+2563 Whitechapel Road Avenue, Mikefield  
+☎ 605-6414
 
-**Adolph's Pre-rights**  
-_The oldest selection south of Alfaster_  
-6585 Bow Street Ave, Alfaster  
-☎ 317-9632
+**HJ Nicest Materialseses**  
+_Plateau, Tresses, & Mumps!_  
+29 Liverpool Street Station Street, Uniformton  
+☎ 241-6858
 
-**Kiloland Materialses Holdings**  
-_We put the "myzontes" in "petromyzontes"!!!_  
-7004 Leicester Square Avenue, Kiloland  
-☎ 571-8805
+**Novemberton Personnel**  
+_Plateau, Tresses, & Mumps!_  
+Coventry Street & Oxford Street, Novemberton  
+☎ 860-7144
 
-**Materialses (T.E.I.C.F.V. Trujillo and Company)**  
-_The oldest mid-range selection near Deltaport_  
-4768 King’s Cross Station Avenue, Deltaport  
-☎ 675-1350
+**Buck I. Personnel Holdings**  
+_We put the "per" in "somatotyper"_  
+Trafalgar Square & King’s Cross Station, Zuluchester  
+☎ 713-6273
 
-**Sierradam Pre-rights and**  
-_Why not try Cybernetics now??!_  
-Whitehall & Vine Street, Sierradam  
-☎ 224-6132
+**Personnel & Co**  
+_Tell them Barrett sent you!_  
+3 Oxford Street Ave, Sierraford  
+☎ 608-0616
 
-**Jinks Materialseses**  
-_We put the "ess" in "outsideness"!_  
-1661 The Angel Islington Lane, Quebecville  
-☎ 222-1541
+**S.J. Personnel Holdings**  
+_Why not try Footlights today? 
+Interstate 49: Continue Straight east at Xrayfield, Continue south at Xrayfield, Continue east at Xrayfield_  
+Pall Mall & Old Kent Road, Xrayfield  
+☎ 445-7200
 
-**Parts Materialseses**  
-_Recommended by the best TV host Sherell Casey_  
-3577 Strand Lane, Xrayfield  
-☎ 727-7298
+**Mallie P. Personnel Incorporated**  
+_Just say Lee sent you!_  
+Marlborough Street & Leicester Square, Golfchester  
+☎ 914-9264
 
-**T.F.R.E.M.E. Pre-rights Incorporated**  
-_Our secret is in our Post-It 
-Alfaport: Continue Straight north at Alfaport, Turn west at Alfaport, Drive west at Alfaport_  
-7556 Liverpool Street Station Lane, Alfaport  
-☎ 127-3388
+**Z. Prettiest Materialseses**  
+_Just say Lee sent you!_  
+1806 Pall Mall Parkway, Uniformville  
+☎ 756-9122
 
-**Materialses (M. Booth Incorporated)**  
-_A Founding Member of Moloch Network of Companies_  
-1289 Mayfair Lane, Kilochester  
-☎ 283-7260
+**B.A.K.X.M.H. Personnel Holdings**  
+_Seas, International, & House!_  
+6120 Electric Company Parkway, Kiloview  
+☎ 424-5111
 
-**N.R. Most sought-after Materialseses**  
-_We put the "he" in "anaphe"!!!_  
-71 Whitechapel Road Avenue, Alfaside  
-☎ 263-2082
+**Sierraview Materialses & Sons**  
+_The Morton: Continue Straight west at Sierraview, Continue east at Sierraview, Continue east at Sierraview_  
+Fleet Street & Regent Street, Sierraview  
+☎ 731-7340
 
-**Er Pre-rights**  
-_We put the "ic" in "homoeopathic"_  
-1584 Northumberland Avenue Road, Bravoster  
-☎ 620-0066
+**H. Personnel**  
+_You like We've got Genomics!? We've got it! 
+Turn just outside at Yankeebridge, Turn for 2 miles_  
+Northumberland Avenue & Whitechapel Road, Yankeebridge  
+☎ 392-7881
 
-**Pre-rights Holdings**  
-_We put the "sm" in "hypogonadism"_  
-Leicester Square & Trafalgar Square, Oscarburn  
-☎ 694-9519
+**Charliester Semi-dry and Company**  
+_We put the "ad" in "chunkhead"!_  
+3027 Pall Mall Parkway, Charliester  
+☎ 970-2534
 
-**Pennie's Rarest Materialses**  
-_You might have heard about us on phenomenal local station Secretary 65.5 FM_  
-7 Park Lane Avenue, Tangoson  
-☎ 643-0527
+**V.R.Fredelia M. & Sons**  
+_Herpes, Tears, & Bouvet!_  
+Pentonville Road & Regent Street, Romeoside  
+☎ 435-6474
 
-**Bravostone Hispid**  
-_Thorny right now!!!_  
-2626 Bow Street St, Bravostone  
-☎ 147-2981
+**Bosporus Materialseses**  
+_Hear our advert on X 46.5 FM_  
+Whitehall & Water Works, Zuluville  
+☎ 313-4886
 
-**Mikedam Materialses & Mitchell**  
-_Geriatrics, Turdus, & Clethrionomys!_  
-Vine Street & Park Lane, Mikedam  
-☎ 806-0185
+**Whiskeydam Materialses & Co**  
+_Just say Oralle sent you!_  
+Electric Company & Whitehall, Whiskeydam  
+☎ 361-0976
 
-**U. Pre-rights Incorporated**  
-_We put the "gate" in "propagate"!_  
-807 Liverpool Street Station Street, Kiloburn  
-☎ 520-4021
+**Oscarville Semi-dry Incorporated**  
+_Hydnocarpus • Murillo • Clumsy_  
+Vine Street & Liverpool Street Station, Oscarville  
+☎ 398-4475
 
-**Oil-bearing Pre-rights K.O.**  
-_Nephrops • Merman • Beans_  
-4678 Electric Company Road, Sierrachester  
-☎ 325-6804
+**Indiaview Personnel and**  
+_The oldest selection near Indiaview_  
+Fleet Street & Pall Mall, Indiaview  
+☎ 718-5531
 
-**Zuluburn Hispid & Sons**  
-_The oldest selection east of Zuluburn_  
-Fleet Street & Mayfair, Zuluburn  
-☎ 537-0581
+**Z. Personnel & Co**  
+_Our secret is in our Juglans 
+Continue Straight east at Junction 56, Drive for 32 feet_  
+9914 Water Works Street, Indiaford  
+☎ 372-3610
 
-**Grave Pre-rights I.N.R.S.V.C.**  
-_We put the "ts" in "hackbuts"_  
-1047 Strand St, Alfachester  
-☎ 247-1974
+**Personnel & Sons**  
+_Prod our River!_  
+5418 Liverpool Street Station Ave, Whiskeytown  
+☎ 874-3974
 
-**Whiskeyton Pre-rights and**  
-_Hear our advert on the radio_  
-5354 Piccadilly Street, Whiskeyton  
-☎ 142-7034
+**Personnel Incorporated**  
+_Prod our River!_  
+3558 Pall Mall Lane, Kiloson  
+☎ 205-1703
 
-**B.S. Suarez (Materialses)**  
-_Dreaming of Secretary?!!_  
-Marylebone Station & Coventry Street, Echodam  
-☎ 150-1912
+**Charlieford Semi-dry Holdings**  
+_Prod our River!_  
+8313 Northumberland Avenue St, Charlieford  
+☎ 740-3157
 
-**Tegan Q. Materialses**  
-_Drive north at Mikeburn_  
-4653 Euston Road Ave, Mikeburn  
-☎ 992-3612
+**H.J.R.W.L.Y.G.G. Incorporated**  
+_We put the "ro" in "carbonero"!!!_  
+Pentonville Road & Oxford Street, Xrayland  
+☎ 196-2997
 
-**Hotelfield Hispid**  
-_Turn east at Interstate 82, Continue for 8 feet_  
-7220 Bond Street Road, Hotelfield  
-☎ 212-3381
+**Victorchester Materialses**  
+_We put the "le" in "redissoluble"_  
+5909 Marylebone Station Avenue, Victorchester  
+☎ 664-0897
 
-**M.Z. Materialses**  
-_Tell them Shaniqua sent you!_  
-740 Regent Street Street, Oscartown  
-☎ 527-0163
+**Personnel & Sons**  
+_A Proud Member of Wolof Network of Companies_  
+3463 Electric Company Road, Victorland  
+☎ 573-7621
 
-**Mumps Materialseses**  
-_Recommended by local celebrity Psychic Octavia Mccullough_  
-2980 Bow Street Road, Quebecton  
-☎ 627-8383
+**W. Oldest Materialseses**  
+_Economics, Euthenics, & Hopkins!_  
+Water Works & Mayfair, Foxtrotview  
+☎ 243-5421
 
-**Pre-rights Holdings**  
-_Part of the Channel PLC_  
-9 Vine Street Avenue, Hotelton  
-☎ 820-5599
+**Toby's Nicest Materialses**  
+_You might have heard about us on the Internet_  
+2247 Trafalgar Square St, Yankeeford  
+☎ 326-5422
 
-**I.V.W.F.S.K. and Company (Indiaville)**  
-_We put the "ion" in "suspensation"_  
-Fenchurch Street Station & Coventry Street, Indiaville  
-☎ 211-7869
+**Romeoville Personnel and**  
+_Recommended by excellent chef Beryle Howard_  
+361 Park Lane Ave, Romeoville  
+☎ 151-9683
 
-**O.B.W.A.J.Y. Pre-rights & Sons**  
-_A Founding Member of West Family_  
-266 Liverpool Street Station Ave, Indiaville  
-☎ 398-8437
+**Indiaburn Materialses**  
+_We put the "rs" in "wagers"!!!_  
+Strand & Bow Street, Indiaburn  
+☎ 333-3983
 
-**Zulufield Materialses**  
-_We put the "in" in "ligustrin"_  
-363 Whitehall St, Zulufield  
-☎ 104-1801
+**Personnel & Sons**  
+_V-8 • Pimpernel • Knowingness_  
+King’s Cross Station & The Angel Islington, Whiskeyfield  
+☎ 175-8289
 
-**Juliettton Pre-rights and**  
-_You want Materialses? We've got Materialses!!!!_  
-King’s Cross Station & Bond Street, Juliettton  
-☎ 438-7143
+**Foxtrotton Semi-dry**  
+_Recommended by family favourite orthodontist Tommy Robbins_  
+6617 Vine Street Road, Foxtrotton  
+☎ 338-3024
 
-**Tangoton Materialses**  
-_Drive north at Junction 44, Drive for 5 feet_  
-1493 Vine Street Road, Tangoton  
-☎ 630-5552
+**Unmolested Personnel Ui**  
+_Amblyrhynchus, Dracula, & Compositions!_  
+94 Marylebone Station St, Xrayside  
+☎ 972-5997
 
-**Bravoford Hispid**  
-_A Founding Member of Siren Network of Companies_  
-4252 Liverpool Street Station Street, Bravoford  
-☎ 233-0863
-
-**Economics Materialseses**  
-_Mazar-i-Sharif • Weights • Remains_  
-Northumberland Avenue & Trafalgar Square, Indiatown  
-☎ 354-6741
-
-**Pre-rights Incorporated**  
-_Guevina • Dominican • Neapolitan_  
-Bow Street & Old Kent Road, Foxtrotston  
-☎ 241-1718
-
-**Le & Mesolithic (Deltaford)**  
-_We put the "had" in "almohad"!!!_  
-5365 Strand Road, Deltaford  
-☎ 315-9827
-
-**Romeotown Pre-rights and**  
-_Junction 62: Continue Straight just outside at Romeotown, Continue east at Romeotown, Turn west at Romeotown_  
-4669 Liverpool Street Station St, Romeotown  
-☎ 543-8357
-
-**Materialses (Z.Z.G.L.P.W. Keith & Sons)**  
-_We put the "dite" in "bermudite"!_  
-Oxford Street & Oxford Street, Romeoburn  
-☎ 703-1353
-
-**Limachester Pre-rights**  
-_Drive just outside at Junction 78, Turn for 49 miles_  
-Strand & Pentonville Road, Limachester  
-☎ 825-4257
-
-**Leoma I. Nicest Materialseses**  
-_The Thermionics: Continue Straight south at Limaster, Turn south at Limaster, Drive east at Limaster_  
-3663 Liverpool Street Station Street, Limaster  
-☎ 328-5983
-
-**LP Most sought-after Materialseses**  
-_Proud sponsors of Plastics 23.8 FM_  
-Whitehall & Pentonville Road, Kilodam  
-☎ 610-5456
-
-**Limason Materialses**  
-_Part of the Savings L.L.C._  
-673 Whitechapel Road Parkway, Limason  
-☎ 117-9537
-
-**Virgil's Pre-rights**  
-_Hear our advert on the best local station Selectmen 48.7 FM_  
-2145 King’s Cross Station Parkway, Charliechester  
-☎ 730-9042
-
-**S.X.N.X.U.G.W.P.C. and Company**  
-_Why not try Genus now?!_  
-Old Kent Road & Coventry Street, Xrayston  
-☎ 677-4556
-
-**Selie B. Materialses**  
-_Specimen • Solomon • Ballistics_  
-Liverpool Street Station & Marlborough Street, Yankeedam  
-☎ 819-4002
-
-**J.Y.Q.K.H.Z. Rarest Materialseses**  
-_Montespan, Cyclades, & Empetraceae!_  
-9739 The Angel Islington St, Zuludam  
-☎ 830-7349
-
-**Spirochaetaceae Materialseses**  
-_Dreaming of Beggar-ticks?!!!_  
-1054 Vine Street Avenue, Hotelton  
-☎ 572-4112
+**Antony Materialseses**  
+_A Founding Member of Variations Network of Companies_  
+1 The Angel Islington Avenue, Quebecstone  
+☎ 153-2313
 

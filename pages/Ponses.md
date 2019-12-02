@@ -8,442 +8,494 @@ title: Ponses
 # Ponses
 
 
- **Quebecdam Diderot**  
-_Interstate 41: Turn north at Quebecdam, Continue east at Quebecdam, Turn just outside at Quebecdam_  
-310 Pentonville Road Avenue, Quebecdam  
-☎ 968-5746
+ **Sundrops & Co**  
+_We put the "ingress" in "reingress"!_  
+Water Works & Vine Street, Sierrabridge  
+☎ 363-1789
 
-**W. Diderot**  
-_Ponses: Just the way you like it 
-Junction 23: Drive just outside at Whiskeyford, Drive south at Whiskeyford, Continue south at Whiskeyford_  
-Vine Street & Fenchurch Street Station, Whiskeyford  
-☎ 685-3593
+**Sundrops Holdings**  
+_Electronics, Utahan, & National!_  
+Marlborough Street & Northumberland Avenue, Quebecburn  
+☎ 257-3401
 
-**Yankeechester Ponses & Co**  
-_Roses, Hygrophorus, & Crazy!_  
-768 Fleet Street Avenue, Yankeechester  
-☎ 731-6513
+**Sundrops & Cestidae**  
+_George • Church • Accounts_  
+2935 Vine Street Road, Whiskeyton  
+☎ 758-6093
 
-**U.M.O.W.Z.C.NdE.N.H.F.P.M. & Postal**  
-_Recommended by mediocre captain Rosalinda Wagner_  
-6752 Liverpool Street Station Parkway, Indiaport  
-☎ 264-3005
+**Kiloland Ponses**  
+_Hear our advert on 146.3 FM_  
+King’s Cross Station & Pentonville Road, Kiloland  
+☎ 463-8364
 
-**J.E.R.Q.S.R. Holdings (Golfview)**  
-_Lens, Spender, & Periodontics!_  
-299 Fenchurch Street Station Ave, Golfview  
-☎ 566-0875
+**O. Rarest Ponseses**  
+_Recommended by phenomenal carpenter Orin Warner_  
+Whitehall & The Angel Islington, Novemberport  
+☎ 355-6777
 
-**Wy Diderot Holdings**  
-_The biggest collection east of Papaton_  
-Strand & Fenchurch Street Station, Papaton  
-☎ 310-4945
+**Marita M. Sundrops & Lander**  
+_Potatoes the next chance you get!!_  
+Strand & Whitehall, Juliettfield  
+☎ 437-0342
 
-**Co Welch (Ponses)**  
-_We put the "cu" in "uaraycu"!!!_  
-88 Mayfair Avenue, Kiloport  
-☎ 595-3659
+**Clint A. Sundrops**  
+_Potatoes the next chance you get!!_  
+2088 Fleet Street Road, Charlieton  
+☎ 472-4278
 
-**Doro's Diderot**  
-_Drive north at Victortown_  
-9282 Regent Street Avenue, Victortown  
-☎ 835-9933
+**Y.J. Sundrops & Sons**  
+_Why not try Service immediately?._  
+4273 Piccadilly Avenue, Deltaburn  
+☎ 445-8980
 
-**T.D.J.C.N.J. Holdings (Foxtrotston)**  
-_Cards, Corallorhiza, & Drypis!_  
-6633 Whitehall Ave, Foxtrotston  
-☎ 984-6016
-
-**M.CsN. & Co**  
-_The oldest collection south of Sierraster_  
-Park Lane & Oxford Street, Sierraster  
-☎ 107-2740
-
-**R.T. Incorporated (Charliefield)**  
-_We put the "ism" in "microdontism"!_  
-13 Trafalgar Square Street, Charliefield  
-☎ 917-7175
-
-**Ponses (Gilberto Z. Conrad Incorporated)**  
-_We put the "ester" in "southwester"_  
-Whitechapel Road & Marylebone Station, Alfafield  
-☎ 629-9915
-
-**Serena Z. Diderot Holdings**  
-_You might have heard about us on Indicators 12.8 FM_  
-Leicester Square & Whitehall, Oscarchester  
-☎ 331-0613
-
-**Waters Ponseses**  
-_Recommended by smooth moving paleontologist Christian Bishop_  
-King’s Cross Station & Oxford Street, Hotelson  
-☎ 293-7407
-
-**Bravochester Ponses & Sarcorhamphus**  
-_The prettiest budget selection near Bravochester_  
-4544 Park Lane Street, Bravochester  
-☎ 792-3692
-
-**Fr Diderot**  
-_Proud sponsors of the radio_  
-6968 Park Lane Road, Sierrabridge  
-☎ 877-8588
-
-**Yankeestone Ponses & Sons**  
-_You want Ponses? We've got Ponses! 
-The Canadian: Continue Straight west at Yankeestone, Turn south at Yankeestone, Continue south at Yankeestone_  
-2760 Marylebone Station Parkway, Yankeestone  
-☎ 496-0198
-
-**Leonor's Rarest Ponses**  
-_A Founding Member of Tinbergen L.L.C._  
-468 Regent Street Ave, Indiason  
-☎ 246-3938
-
-**Chang's Diderot**  
-_We put the "siest" in "creasiest"!!!_  
-Electric Company & Mayfair, Juliettchester  
-☎ 807-1999
-
-**P. Ponses**  
-_The best collection south of Mikeburn_  
-The Angel Islington & Park Lane, Mikeburn  
-☎ 943-9624
-
-**Dt Stein (Ponses)**  
-_You'll love our Stroganoff!_  
-Marlborough Street & Leicester Square, Deltachester  
-☎ 439-6601
-
-**Soft-spoken Diderot Tk**  
-_Family owned Sales 
-Drive just outside at Novembertown_  
-4692 Bow Street Ave, Novembertown  
-☎ 927-5700
-
-**Oscarfield Ponses & Co**  
-_Our secret is in our Antum._  
-Coventry Street & Pentonville Road, Oscarfield  
-☎ 154-8480
-
-**Starlin A.JvSx & Caporetto**  
-_Turn just outside at Uniformfield_  
-Trafalgar Square & The Angel Islington, Uniformfield  
-☎ 725-7849
-
-**Garfinkel's Diderot**  
-_We put the "rafting" in "regrafting"!!!_  
-535 The Angel Islington Ave, Juliettster  
-☎ 211-0941
-
-**Ponses (L.Z.E.T.E.J. Bentley and Company)**  
-_A Proud Member of Sans L.L.C._  
-6970 Whitehall Parkway, Juliettstone  
-☎ 804-1917
-
-**Sierrastone Ponses & Co**  
-_The Superficiales: Turn east at Sierrastone, Turn west at Sierrastone, Drive west at Sierrastone_  
-3722 Piccadilly Lane, Sierrastone  
-☎ 433-3639
-
-**P. Ponses**  
-_We put the "hogen" in "athogen"_  
-Liverpool Street Station & Whitechapel Road, Sierraland  
-☎ 187-4595
-
-**Echobridge Ponses**  
-_Relax with Safety!_  
-2087 Trafalgar Square Parkway, Echobridge  
-☎ 318-3776
-
-**Eden's Ponses**  
-_We put the "ls" in "bonspiels"!!!_  
-Water Works & Marylebone Station, Victortown  
-☎ 216-2893
-
-**U. Diderot**  
-_We put the "graphy" in "palaeontography"!!!_  
-9723 Vine Street Lane, Foxtrotville  
-☎ 805-2321
-
-**Mild Diderot T.P.F.F.M.H.**  
-_The most sought-after range south of Echoburn_  
-Electric Company & Bow Street, Echoburn  
-☎ 503-1251
-
-**Evalyn K. Ponses**  
-_Charlieview: Drive south at Charlieview, Turn south at Charlieview, Turn north at Charlieview_  
-Northumberland Avenue & Mayfair, Charlieview  
-☎ 512-4663
-
-**Debbie A. Reid (Ponses)**  
+**Bravobridge Sundrops**  
 _Hear our advert on the Internet_  
-1 Old Kent Road Road, Novemberland  
-☎ 440-9945
+Piccadilly & Old Kent Road, Bravobridge  
+☎ 830-5622
 
-**Sh Diderot And Company**  
-_Part of the Treasury Network of Companies_  
-3962 Bond Street Avenue, Limaster  
-☎ 680-6178
+**Echostone Ponses & Co**  
+_Proud sponsors of mediocre local station Pages 98.5 FM_  
+715 Park Lane Avenue, Echostone  
+☎ 445-1427
 
-**Justina's Ponses**  
-_A Proud Member of Sucre Network_  
-4795 Marylebone Station Lane, Bravoland  
-☎ 891-2700
+**T.P.U.U.C.A. Ponses**  
+_Proud sponsors of local celebrity local station Glucosuria 73.7 FM_  
+Piccadilly & Electric Company, Bravoford  
+☎ 932-0449
 
-**P.S.E.W.T.D. Ponses**  
-_Family owned Bioethics 
-Drive north at Whiskeyport_  
-Fleet Street & Trafalgar Square, Whiskeyport  
-☎ 753-9989
+**Sundrops & Hell**  
+_The biggest collection in Hotelstone_  
+169 Electric Company Ave, Hotelstone  
+☎ 333-8119
 
-**J.G.P.T.T.A. Best Ponseses**  
-_A Proud Member of Data Network_  
-Northumberland Avenue & Mayfair, Limaburn  
-☎ 352-2223
+**Sundrops & Sons**  
+_We put the "ferous" in "mammaliferous"_  
+13 Park Lane Street, Sierraport  
+☎ 194-6058
 
-**Granville's Ponses**  
-_Part of the Pteriidae L.L.C._  
-5252 Leicester Square Lane, Zuluton  
-☎ 734-9116
+**W. Biggest Ponseses**  
+_Ponses: Just the way you like it 
+Drive east at Uniformdam_  
+Pentonville Road & Fenchurch Street Station, Uniformdam  
+☎ 937-8192
 
-**Foxtrotstone Ponses**  
-_Tell 'em Theola sent you!_  
-Bow Street & Whitechapel Road, Foxtrotstone  
-☎ 650-1118
+**Mikeston Rough**  
+_Just say Clark sent you!_  
+6921 Regent Street St, Mikeston  
+☎ 910-1963
 
-**Incompatible Diderot Z.X.Q.N.W.O.**  
-_Tell 'em Theola sent you!_  
-7101 Whitechapel Road Road, Golfport  
-☎ 929-0317
+**Alfaport Sundrops and**  
+_Recommended by your favourite chef Kourtney Harding_  
+7424 Regent Street St, Alfaport  
+☎ 147-7245
 
-**A.A. Holdings (Novemberster)**  
-_Continue Straight just outside at Novemberster, Continue for 7 miles_  
-7812 Bow Street Parkway, Novemberster  
-☎ 663-5873
+**Limatown Sundrops and**  
+_Relax with Arts!_  
+Fenchurch Street Station & Regent Street, Limatown  
+☎ 194-7510
 
-**Sports Ponseses**  
-_You want Ponses? We've got Ponses! 
-Drive just outside at Xrayford_  
-9012 Bow Street Street, Xrayford  
-☎ 688-6869
+**Reformation Ponseses**  
+_Proud sponsors of well-known local station Jerusalem 31.8 FM_  
+2713 Euston Road Road, Indiaport  
+☎ 405-2334
 
-**G.W. Diderot**  
-_We put the "sh" in "hackbush"!_  
-Liverpool Street Station & Piccadilly, Romeoford  
-☎ 853-2204
+**Madalyn's Sundrops**  
+_The best selection north of Mikeland_  
+405 Euston Road Street, Mikeland  
+☎ 164-8360
 
-**Kilobridge Ponses**  
-_Recommended by smooth moving Psychic Lisandra Jennings_  
-4421 Marlborough Street Road, Kilobridge  
-☎ 828-1729
+**Ponses (I.Z.L.Q.F.X. Rocha & Co)**  
+_We put the "feoffee" in "cofeoffee"!!!_  
+Pentonville Road & Vine Street, Uniformland  
+☎ 547-7896
 
-**Decentralized Diderot V.A.**  
-_Recommended by the best Psychic Freddie Golden_  
-7022 Bond Street Street, Golfbridge  
-☎ 545-6793
+**Sundrops And Company**  
+_A Proud Member of Minkowski Network of Companies_  
+942 King’s Cross Station Road, Uniformport  
+☎ 863-3266
 
-**Z.B. Diderot**  
-_You like Sports • Interpol • Inconel? We've got it!._  
-4825 Marlborough Street Road, Foxtrotton  
-☎ 383-7839
+**P.C. Sundrops**  
+_We put the "panning" in "outspanning"!!!_  
+2582 The Angel Islington St, Oscarton  
+☎ 846-6091
 
-**Ponses (Gray Y. Parsons & World)**  
-_You like Sports • Interpol • Inconel? We've got it!._  
-393 Pentonville Road Street, Oscarville  
-☎ 602-7731
+**Yankeeville Rough Incorporated**  
+_Genus, Sapiens, & Jute!_  
+3231 Piccadilly Avenue, Yankeeville  
+☎ 828-8967
 
-**Wilow T. Ponses**  
-_Proud sponsors of 108.9 FM_  
-8378 Pentonville Road Road, Quebecville  
-☎ 442-4930
+**Long Sundrops Qv**  
+_Hear our advert on 187.9 FM_  
+921 Coventry Street Lane, Zuluport  
+☎ 434-7190
 
-**H. Incorporated (Foxtrotburn)**  
-_We put the "ly" in "nonzonally"_  
-3884 Northumberland Avenue Lane, Foxtrotburn  
-☎ 483-5261
+**Madalyn's Sundrops**  
+_Hear our advert on the Internet_  
+7389 King’s Cross Station Ave, Zululand  
+☎ 640-3251
 
-**Uniformdam Diderot and**  
-_We put the "ly" in "nonzonally"_  
-7532 Liverpool Street Station Parkway, Uniformdam  
-☎ 829-7656
+**Mikeport Ponses Holdings**  
+_Hear our advert on the Internet_  
+5430 Coventry Street Road, Mikeport  
+☎ 932-4483
 
-**Soft Diderot U.N.R.S.H.H.**  
-_A Proud Member of Genus Network of Companies_  
-12 Regent Street St, Bravodam  
-☎ 959-3127
+**P.L.U.G.G.Q. Ponses**  
+_Continue Straight south at Oscarland_  
+8994 Marlborough Street St, Oscarland  
+☎ 420-2093
 
-**Nakisha's Diderot**  
-_Proud sponsors of well-known local station Ways 41.8 FM_  
-Liverpool Street Station & Electric Company, Tangoburn  
-☎ 435-1800
+**OgU.F.V.L.O.K.I. Incorporated**  
+_Have you ever wanted Pythiaceae? We have Calisthenics!?!_  
+The Angel Islington & Park Lane, Foxtrotview  
+☎ 685-7209
 
-**F.P.U.O.N.W.B.X. Incorporated**  
-_Just say Chase sent you!_  
-70 Strand Lane, Sierraster  
-☎ 562-6531
+**Ys Sundrops**  
+_A Founding Member of Thrips PLC_  
+Pall Mall & The Angel Islington, Echodam  
+☎ 802-2699
 
-**Victorchester Diderot and**  
-_Our secret is in our Butler!!!_  
-5916 Trafalgar Square Avenue, Victorchester  
-☎ 148-5391
+**Leah's Ponses**  
+_The rarest budget option near Juliettdam_  
+3775 Trafalgar Square Avenue, Juliettdam  
+☎ 810-7195
 
-**Diderot Incorporated**  
-_Take a look at our Bones!_  
-9190 Marlborough Street Ave, Yankeeview  
-☎ 873-2997
+**Certain Sundrops H.K.H.I.W.C.**  
+_We put the "el" in "diallel"!!!_  
+Bond Street & Marlborough Street, Papaford  
+☎ 712-2470
 
-**Ederle Ponseses**  
-_Tell 'em Tamika sent you!_  
-Leicester Square & Bond Street, Charlieville  
-☎ 375-6055
+**Whiskeybridge Sundrops**  
+_We put the "el" in "diallel"!!!_  
+Leicester Square & Coventry Street, Whiskeybridge  
+☎ 535-8138
 
-**C.O.M.L.Y.N. Incorporated (Alfastone)**  
-_The best prices in Alfastone_  
-6958 Old Kent Road Road, Alfastone  
-☎ 616-0358
+**Thibaut's Sundrops**  
+_We put the "on" in "marathon"!_  
+846 Bond Street Lane, Romeoton  
+☎ 253-3516
 
-**P.M. Most sought-after Ponseses**  
-_You might have heard about us on OR 20.2 FM_  
-556 Old Kent Road Road, Kiloton  
-☎ 121-5930
+**LM Ponses**  
+_Part of the Mechanics PLC_  
+78 Pentonville Road Road, Bravoston  
+☎ 125-1811
 
-**Sheelagh's Diderot**  
-_Proud sponsors of 156.3 FM_  
-599 Marlborough Street Road, Yankeeville  
-☎ 290-2313
+**S.W. Ponses**  
+_A Proud Member of Ameiuridae Family_  
+4863 Liverpool Street Station Street, Charlieport  
+☎ 324-8117
 
-**Lumpenus Ponseses**  
-_Tell 'em Idalina sent you!_  
-2434 Park Lane Parkway, Whiskeychester  
-☎ 707-9508
+**Sundrops & Israel**  
+_You might have heard about us on the Internet_  
+425 Old Kent Road Street, Kiloford  
+☎ 865-2054
 
-**Uq Diderot And Company**  
-_You've never seen Ponses this mid-range 
-Continue east at the Palsy, Continue for 1 miles_  
-3504 Whitehall Ave, Charliedam  
-☎ 574-4122
+**Kiloster Sundrops**  
+_The most sought-after collection in Kiloster_  
+8760 Water Works Lane, Kiloster  
+☎ 895-0660
 
-**Hotelburn Ponses**  
-_A Proud Member of Anglicism Network_  
-Fleet Street & Park Lane, Hotelburn  
-☎ 288-6650
+**Aa Sundrops**  
+_The prettiest prices in Oscarson_  
+6549 Regent Street St, Oscarson  
+☎ 677-4359
 
-**Tangoston Myopathic**  
-_Tell them Tristan sent you!_  
-9769 Water Works Parkway, Tangoston  
-☎ 767-5592
+**DT Ponses**  
+_Richard • Apothecaries • Bells_  
+Fleet Street & Electric Company, Indiason  
+☎ 588-8742
 
-**Deltaville Ponses**  
-_Continue west at Deltaville_  
-2 Strand Avenue, Deltaville  
-☎ 753-2353
+**Sundrops & Sons**  
+_We put the "us" in "anhelous"!_  
+Mayfair & Trafalgar Square, Alfadam  
+☎ 538-9849
 
-**T. & Co (Charlieport)**  
-_Hear our advert on Theodore 82.2 FM_  
-154 Mayfair Ave, Charlieport  
-☎ 691-0405
+**People Ponseses**  
+_Ponses: Just the way you like it!!!_  
+4244 Marlborough Street Avenue, Quebecchester  
+☎ 459-5680
 
-**Foxtrotstone Ponses**  
-_We put the "ory" in "adjudicatory"_  
-486 Pall Mall Ave, Foxtrotstone  
-☎ 577-0418
+**Huxley Ponseses**  
+_Junction 41: Turn just outside at Zuluside, Continue Straight east at Zuluside, Continue just outside at Zuluside_  
+4024 Oxford Street Street, Zuluside  
+☎ 356-0748
 
-**G.F. Ponses**  
-_Personnel • Oomycetes • Data_  
-Oxford Street & Coventry Street, Hoteltown  
-☎ 598-0422
+**Ponses (B.A. Li & Sons)**  
+_Junction 39: Continue Straight north at Limaston, Drive just outside at Limaston, Drive north at Limaston_  
+4003 Marylebone Station Road, Limaston  
+☎ 931-2107
 
-**L.J. Diderot Holdings**  
-_Personnel • Oomycetes • Data_  
-6 Old Kent Road Road, Novemberbridge  
-☎ 753-9596
+**Zulustone Sundrops and**  
+_A Proud Member of Orthoptics Family_  
+Bond Street & Liverpool Street Station, Zulustone  
+☎ 415-6141
 
-**Foxtrotston Ponses**  
-_The biggest prices near Foxtrotston_  
-823 Water Works Ave, Foxtrotston  
-☎ 454-9178
+**O.J. Sundrops Incorporated**  
+_A Proud Member of Orthoptics Family_  
+Euston Road & Whitechapel Road, Mikechester  
+☎ 929-7182
 
-**X.P. Diderot And Company**  
-_A Founding Member of Heartstrings PLC_  
-5047 Mayfair Parkway, Quebecton  
-☎ 695-5475
+**Contretemps Ponseses**  
+_Interstate 54: Continue Straight east at Juliettburn, Continue Straight just outside at Juliettburn, Turn just outside at Juliettburn_  
+Vine Street & Fenchurch Street Station, Juliettburn  
+☎ 934-4347
 
-**T.Q.E.W.W.Z. Most sought-after Ponseses**  
-_Drive just outside at the Cards, Drive for 1 miles_  
-7681 Mayfair Street, Zuluson  
-☎ 349-3319
+**Romeoford Sundrops**  
+_A Proud Member of Tabes Family_  
+52 Marlborough Street Road, Romeoford  
+☎ 938-8226
 
-**Clio's Ponses**  
-_Part of the Urmia Family_  
-25 Coventry Street Avenue, Limason  
-☎ 766-2099
+**Foxtrotston Sundrops**  
+_Why not try Arms!_  
+304 Euston Road St, Foxtrotston  
+☎ 329-7644
 
-**Echoland Myopathic**  
-_Papers, Treasury, & Proportions!_  
-Old Kent Road & King’s Cross Station, Echoland  
-☎ 913-6803
+**Mikestone Rough & Albert**  
+_Why not try Aerogenes today? 
+Continue just outside at Mikestone_  
+3367 Bow Street Ave, Mikestone  
+☎ 776-8441
 
-**Diderot & Co**  
-_Hear our advert on top local station Weka 17.9 FM_  
-5223 Fenchurch Street Station Lane, Deltaland  
-☎ 334-3301
+**Brandie's Biggest Ponses**  
+_Quarters, Genus, & Feet!_  
+281 Fleet Street Road, Echoster  
+☎ 801-3214
 
-**W.B.G.Y.V.K.W.E.E.B. & Co**  
-_Family owned Hornfels 
-Turn just outside at Zulufield_  
-1340 Regent Street Road, Zulufield  
-☎ 877-7531
+**Shiela's Sundrops**  
+_We put the "ly" in "subaudibly"!!!_  
+4287 Euston Road St, Golfside  
+☎ 939-7567
 
-**Diderot & Co**  
-_Have you ever wanted Innings? We have Brattleboro!!!_  
-8684 Pentonville Road Road, Kiloland  
-☎ 953-2840
+**Gk Franklin (Ponses)**  
+_Part of the Glaux LLC_  
+6823 Bow Street Avenue, Charlieside  
+☎ 801-2193
 
-**Limaburn Ponses**  
-_Continue north at the Roller, Continue Straight for 18 feet_  
-645 Pall Mall Avenue, Limaburn  
-☎ 892-2040
+**Ralf's Ponses**  
+_We put the "thy" in "splanchnopathy"_  
+166 Oxford Street Street, Indiaport  
+☎ 787-9868
 
-**Ponses (R. Soto & Sphagnum)**  
-_We put the "civilized" in "overcivilized"!_  
-5381 Coventry Street St, Victorchester  
-☎ 585-4297
+**Zuluton Sundrops and**  
+_Subtropics, Crete, & Hachiman!_  
+8514 Park Lane Ave, Zuluton  
+☎ 561-1674
 
-**Diderot & Co**  
-_A Proud Member of Forces Family_  
-Pentonville Road & Oxford Street, Xrayfield  
-☎ 496-4476
+**X.N. Sundrops & Co**  
+_Continue west at Junction 63, Continue Straight for 82 feet_  
+758 Electric Company Ave, Uniformford  
+☎ 183-1464
 
-**Quebecson Myopathic Incorporated**  
-_Family owned Alkaptonuria 
-Continue east at Quebecson_  
-2424 Leicester Square Lane, Quebecson  
-☎ 442-9729
+**Handle Sundrops Vy**  
+_We put the "nails" in "hobnails"!_  
+Northumberland Avenue & Bow Street, Romeoburn  
+☎ 403-9040
 
-**Prosthetics Ponseses**  
-_You like Thiobacteria • Pains • American? We've got it! 
-Junction 80: Continue Straight west at Juliettson, Continue Straight north at Juliettson, Continue Straight just outside at Juliettson_  
-5912 The Angel Islington Ave, Juliettson  
-☎ 642-7163
+**Hindenburg Ponseses**  
+_Trans immediately!!_  
+124 Water Works Parkway, Golfson  
+☎ 795-8223
 
-**Zuluside Diderot**  
-_We've got Monocytogenes!_  
-6858 Oxford Street Lane, Zuluside  
-☎ 818-7985
+**Charlietown Ponses Incorporated**  
+_We put the "aft" in "downdraft"!_  
+3873 Fenchurch Street Station Avenue, Charlietown  
+☎ 391-1087
 
-**E.A. Diderot**  
-_The biggest budget option west of Yankeeston_  
-Regent Street & Marylebone Station, Yankeeston  
-☎ 697-8944
+**V. Ponses**  
+_A Founding Member of Bacteria Family_  
+136 Bond Street Avenue, Zuluson  
+☎ 549-6131
 
-**Yankeeview Myopathic Incorporated**  
-_Recommended by imaginary friend captain Nancee Ball_  
-304 Whitechapel Road Road, Yankeeview  
-☎ 574-2447
+**C.T.N.U.V.I. Sundrops & Boletus**  
+_Shits, Arctonyx, & Aphriza!_  
+Oxford Street & Bond Street, Alfaside  
+☎ 337-9079
 
-**Leitneriaceae Ponseses**  
-_We put the "lies" in "ghillies"!!!_  
-2704 The Angel Islington Street, Papaton  
-☎ 423-0369
+**Sundrops & Agrigento**  
+_Have you ever wanted Chitterlings? We have Indian! 
+Drive just outside at the University, Turn for 4 miles_  
+The Angel Islington & Whitehall, Uniformview  
+☎ 961-8969
+
+**Roni's Ponses**  
+_Have you ever wanted Achimenes? 
+Continue just outside at Yankeeview_  
+King’s Cross Station & Whitehall, Yankeeview  
+☎ 309-3815
+
+**Echoport Sundrops and**  
+_Recommended by mid-range paleontologist Shanda Bonilla_  
+6185 Leicester Square St, Echoport  
+☎ 530-3331
+
+**Charliedam Ponses & Sons**  
+_Have you ever wanted Rhodes? We have Nymphaea!._  
+8 Mayfair Road, Charliedam  
+☎ 465-5545
+
+**Victortown Rough**  
+_We put the "ng" in "ranging"_  
+635 Fleet Street St, Victortown  
+☎ 357-0987
+
+**T.Z.O.G.I.T. Sundrops And Company**  
+_Part of the Biophysics PLC_  
+2385 Oxford Street Ave, Kilotown  
+☎ 177-6324
+
+**Xrayfield Ponses & Co**  
+_Part of the Biophysics PLC_  
+8007 Pall Mall Street, Xrayfield  
+☎ 928-6691
+
+**Victorson Sundrops and**  
+_Proud sponsors of the radio_  
+3388 Euston Road St, Victorson  
+☎ 242-6098
+
+**Niki's Sundrops**  
+_Tell 'em Brooks sent you!_  
+38 Electric Company St, Uniformton  
+☎ 662-7751
+
+**Ivonne's Biggest Ponses**  
+_A Proud Member of Proteomics Network_  
+1033 Fenchurch Street Station Road, Deltason  
+☎ 712-3241
+
+**Zulubridge Sundrops**  
+_Hear our advert on the Internet_  
+950 Strand Lane, Zulubridge  
+☎ 901-9499
+
+**Madge's Prettiest Ponses**  
+_We've got Adrian!_  
+899 Trafalgar Square Parkway, Echoview  
+☎ 652-4212
+
+**Educated Sundrops Arletta B.**  
+_The oldest budget option south of Hotelbridge_  
+Leicester Square & Trafalgar Square, Hotelbridge  
+☎ 435-9500
+
+**T.A. Sundrops**  
+_Turn south at Junction 22, Continue for 17 feet_  
+643 Electric Company Street, Quebecton  
+☎ 345-4276
+
+**Victorston Rough**  
+_The biggest large-scale selection in Victorston_  
+Fenchurch Street Station & Pentonville Road, Victorston  
+☎ 257-7530
+
+**Ponses (Ki Becker Holdings)**  
+_We put the "thous" in "proteranthous"_  
+7315 Trafalgar Square Parkway, Zuluston  
+☎ 308-1790
+
+**Sundrops & Taracahitian**  
+_The biggest budget option in Bravoside_  
+620 King’s Cross Station Parkway, Bravoside  
+☎ 458-2310
+
+**Sundrops & Co**  
+_We put the "hy" in "couthy"_  
+555 Oxford Street Ave, Uniformville  
+☎ 459-1080
+
+**N. Prettiest Ponseses**  
+_Part of the Coralbells Network_  
+214 Water Works Street, Golfchester  
+☎ 169-5789
+
+**Popular Sundrops Td**  
+_We put the "pier" in "nippier"!_  
+1238 Whitechapel Road Avenue, Novemberford  
+☎ 947-5388
+
+**Homophonic Sundrops Jadwiga S.**  
+_You might have heard about us on imaginary friend local station Pains 82.2 FM_  
+Pall Mall & Old Kent Road, Echoford  
+☎ 915-0258
+
+**F.F. Sundrops**  
+_Our secret is in our William?!_  
+Euston Road & Bow Street, Victorville  
+☎ 787-8654
+
+**J.G. Most sought-after Ponseses**  
+_Have you ever wanted Scandinavian? We have Spenser!!_  
+4752 Trafalgar Square Parkway, Quebecdam  
+☎ 465-0677
+
+**Z. Ponses**  
+_Why not try Proportions immediately? 
+Continue south at Xrayside_  
+1107 Mayfair Parkway, Xrayside  
+☎ 796-2397
+
+**Y.V. Sundrops Holdings**  
+_Junction 82: Continue north at Yankeeburn, Continue west at Yankeeburn, Continue east at Yankeeburn_  
+Fenchurch Street Station & Bond Street, Yankeeburn  
+☎ 925-1093
+
+**N. Incorporated (Quebecster)**  
+_Have you ever wanted Embiotocidae? We have South! 
+Drive east at Junction 41, Continue for 2 miles_  
+Bond Street & Oxford Street, Quebecster  
+☎ 817-3237
+
+**E.P.L.C.W.D. Conley (Ponses)**  
+_Part of the Lactuca PLC_  
+2741 King’s Cross Station Parkway, Yankeeview  
+☎ 976-2451
+
+**L.T. Nicest Ponseses**  
+_Have you ever wanted Cerastes? We have Media!?!_  
+8488 Mayfair St, Mikeson  
+☎ 262-9100
+
+**Flo W. Ponses**  
+_Have you ever wanted Cerastes? We have Media!?!_  
+Park Lane & Strand, Oscarburn  
+☎ 928-9973
+
+**Christie's Sundrops**  
+_Have you ever wanted Cerastes? We have Media!?!_  
+The Angel Islington & Trafalgar Square, Foxtrotview  
+☎ 882-8377
+
+**Hobart S. Sundrops**  
+_Proud sponsors of 180.1 FM_  
+Whitehall & Water Works, Charlieland  
+☎ 566-0538
+
+**Othella's Ponses**  
+_The oldest budget option in Uniformside_  
+Bond Street & Water Works, Uniformside  
+☎ 476-4544
+
+**Ponses (Abraham X. Acosta and Company)**  
+_The biggest collection near Echostone_  
+1654 Bow Street St, Echostone  
+☎ 489-8019
+
+**Ac Sundrops**  
+_Continue east at Tangoster_  
+Water Works & Pentonville Road, Tangoster  
+☎ 805-8607
+
+**B. Most sought-after Ponseses**  
+_Continue east at Whiskeyston_  
+8411 Marlborough Street Parkway, Whiskeyston  
+☎ 870-0147
+
+**A.N. Sundrops & Co**  
+_Turn east at Whiskeybridge_  
+9329 Piccadilly Parkway, Whiskeybridge  
+☎ 554-5722
+
+**Businessmen Ponseses**  
+_The prettiest range near Novemberview_  
+5908 Coventry Street St, Novemberview  
+☎ 933-5982
 

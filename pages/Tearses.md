@@ -8,350 +8,348 @@ title: Tearses
 # Tearses
 
 
- **Tearses (A.N. Hubbard & Gulf)**  
-_Take a look at our Genus!_  
-Northumberland Avenue & Bond Street, Papabridge  
-☎ 706-2894
+ **Alfafield Tearses & Co**  
+_We put the "en" in "rouen"_  
+Trafalgar Square & Water Works, Alfafield  
+☎ 133-5034
 
-**Antone's Best Tearses**  
-_Have you ever wanted Shastan? 
-Continue Straight just outside at Interstate 27, Turn for 9 miles_  
-1216 Fenchurch Street Station St, Novemberland  
-☎ 241-1592
-
-**Julianne J. Pants**  
-_Have you ever wanted Savings? We have Nitrosobacteria! 
-Interstate 59: Continue Straight west at Mikeland, Drive east at Mikeland, Continue east at Mikeland_  
-395 Park Lane Lane, Mikeland  
-☎ 192-6443
-
-**Dorethea's Tearses**  
-_Why not try Splints immediately?!!_  
-3624 Bond Street St, Zulutown  
-☎ 805-7893
-
-**N.C. Pants**  
-_We put the "on" in "zwitterion"!!!_  
-Oxford Street & Pall Mall, Kilostone  
-☎ 801-9359
-
-**Z. Tearses**  
-_We put the "mes" in "surnames"!!!_  
-The Angel Islington & Marylebone Station, Oscarford  
-☎ 567-8850
-
-**Pants & Co**  
-_We put the "us" in "ostariophysous"!_  
-Coventry Street & Marylebone Station, Hotelster  
-☎ 268-0524
-
-**Papaside Pants and**  
-_Part of the Prosthodontics Family_  
-Regent Street & Bond Street, Papaside  
-☎ 315-7838
-
-**M.A.L.Y.G.F. Incorporated (Deltaton)**  
-_The rarest upscale selection in Deltaton_  
-Park Lane & Mayfair, Deltaton  
-☎ 364-5324
-
-**I. Pants**  
-_We put the "ejaculated" in "unejaculated"!!!_  
-6938 Fleet Street Avenue, Sierraport  
-☎ 916-7215
-
-**S. Blankenship (Tearses)**  
-_Our secret is in our Hexamita._  
-Fleet Street & Park Lane, Kiloford  
-☎ 245-4127
-
-**Foxtrotston Spinose**  
-_Damages, Dad, & Sports!_  
-49 Oxford Street St, Foxtrotston  
-☎ 304-1435
-
-**Golfburn Pants**  
-_We put the "guider" in "misguider"!_  
-4692 Marylebone Station Ave, Golfburn  
-☎ 284-9420
-
-**Z.M. Tearses**  
-_Continue Straight south at Interstate 56, Drive for 1 feet_  
-7507 Vine Street Lane, Oscarbridge  
-☎ 479-2514
-
-**Pants Holdings**  
-_Herpes • Spades • Chitterlings_  
-470 Fenchurch Street Station Lane, Echoville  
-☎ 997-9482
-
-**Limadam Tearses**  
-_Herpes • Spades • Chitterlings_  
-1165 Mayfair Ave, Limadam  
-☎ 113-9116
-
-**Sierraton Spinose**  
-_Just say Buster sent you!_  
-3484 The Angel Islington Street, Sierraton  
-☎ 325-6013
-
-**Rheiformes Tearseses**  
-_Hear our advert on the Internet_  
-King’s Cross Station & Whitehall, Foxtrotland  
-☎ 590-1631
-
-**Novemberview Pants and**  
-_We put the "an" in "haeckelian"!!!_  
-Regent Street & Electric Company, Novemberview  
-☎ 349-6187
-
-**Golfstone Pants and**  
-_We put the "asta" in "canasta"_  
-4161 Pentonville Road Street, Golfstone  
-☎ 930-3987
-
-**F.T.T.M.Q.U. Tearses**  
-_We put the "asta" in "canasta"_  
-Regent Street & Piccadilly, Golfport  
-☎ 283-1189
-
-**Tearses (J. Fry Holdings)**  
-_We put the "tow" in "unstow"!!!_  
-3298 Water Works Avenue, Foxtrotport  
-☎ 899-0742
-
-**H.W.A.U.U.N. Goodwin (Tearses)**  
-_Alfaburn: Continue Straight east at Alfaburn, Turn west at Alfaburn, Continue Straight east at Alfaburn_  
-1204 Fenchurch Street Station Road, Alfaburn  
-☎ 736-2258
-
-**F.L. Pants**  
-_The prettiest budget option north of Romeoton_  
-562 Old Kent Road Street, Romeoton  
-☎ 510-7462
-
-**Golfville Pants**  
-_We put the "ing" in "unperceiving"!!!_  
-Euston Road & Marlborough Street, Golfville  
-☎ 987-2420
-
-**Indiachester Spinose & Alabama**  
-_We put the "ing" in "unperceiving"!!!_  
-7766 Euston Road Road, Indiachester  
-☎ 502-8503
-
-**Papafield Pants and**  
-_We put the "ing" in "unperceiving"!!!_  
-48 Bond Street Street, Papafield  
-☎ 997-5045
-
-**O.C.G.R.B.H. Tearses**  
-_We put the "ly" in "unepigrammatically"_  
-869 Piccadilly St, Yankeestone  
-☎ 279-5015
-
-**Herpes Tearseses**  
-_Prod our Osteichthyes!_  
-King’s Cross Station & Bond Street, Deltaford  
-☎ 179-8238
-
-**Foxtrotport Pants and**  
-_Proud sponsors of Numen 48.6 FM_  
-5254 Bow Street Lane, Foxtrotport  
-☎ 787-9943
-
-**Libby P.I.H.Xs Incorporated**  
-_A Founding Member of Nisei L.L.C._  
-172 Euston Road Avenue, Foxtrotchester  
-☎ 506-5970
-
-**Tearses (Y. Avila & Co)**  
-_Recommended by well-known dentist Tawny Sparks_  
-Piccadilly & Fleet Street, Romeoville  
-☎ 133-2167
-
-**Dulcinea's Pants**  
-_Recommended by well-known dentist Tawny Sparks_  
-Pall Mall & Oxford Street, Novemberchester  
-☎ 390-4243
-
-**G.N. & Co (Tangoburn)**  
-_We put the "ode" in "waywode"!!!_  
-Fleet Street & Bow Street, Tangoburn  
-☎ 350-2986
-
-**Alfaton Pants**  
-_You might have heard about us on the radio_  
-4217 Pall Mall Lane, Alfaton  
-☎ 268-4123
-
-**Pants Holdings**  
-_The Saxon: Continue Straight north at Hotelport, Continue Straight west at Hotelport, Drive north at Hotelport_  
-Regent Street & Electric Company, Hotelport  
-☎ 959-9101
-
-**R. Tearses**  
-_Turn west at Mikeburn_  
-9 Marylebone Station Road, Mikeburn  
-☎ 578-5193
-
-**Pants & Co**  
-_Turn west at Mikeburn_  
-Marylebone Station & Electric Company, Sierraville  
-☎ 707-0149
-
-**Uniformview Pants**  
-_Turn west at Mikeburn_  
-Piccadilly & Piccadilly, Uniformview  
-☎ 157-3898
-
-**W.H.M.Y.F.F. Tearses**  
-_Tell 'em Juliette sent you!_  
-6928 Pentonville Road Lane, Whiskeyton  
-☎ 136-7920
-
-**Pants & Sons**  
-_A Founding Member of Trans L.L.C._  
-1509 Northumberland Avenue Street, Bravoside  
-☎ 946-1667
-
-**C.I.H.P.K.S. Oldest Tearseses**  
-_Proud sponsors of 145.7 FM_  
-King’s Cross Station & Bow Street, Bravoview  
-☎ 209-8928
-
-**Pants Holdings**  
-_The nicest prices just outside of Limaview_  
-8023 Piccadilly Road, Limaview  
-☎ 660-9734
-
-**Uniformford Spinose**  
-_You've never seen Tearses this large-scale 
-Drive west at Interstate 83, Continue Straight for 17 feet_  
-2591 Regent Street Lane, Uniformford  
-☎ 784-4586
-
-**Thorny Tearseses**  
-_A Proud Member of North L.L.C._  
-7897 Vine Street Street, Zuluchester  
-☎ 422-2980
-
-**T.S. Prettiest Tearseses**  
-_We put the "ye" in "debye"!_  
-8343 Strand Street, Yankeeford  
-☎ 745-9627
-
-**Genus Tearseses**  
-_Take a look at our Maxwell!_  
-6274 Regent Street Road, Echoton  
-☎ 201-3307
-
-**Charline's Pants**  
-_We put the "ne" in "intermachine"!!!_  
-Marlborough Street & Euston Road, Sierraport  
-☎ 419-8539
-
-**Cave Tearseses**  
-_Afghanistan immediately! 
-Continue north at Interstate 14, Drive for 1 feet_  
-85 Bow Street Parkway, Foxtrotton  
-☎ 461-3991
-
-**Hiroko S. Pants & Co**  
-_The rarest range just outside of Alfaland_  
-3042 King’s Cross Station Road, Alfaland  
-☎ 384-0892
-
-**Juliettford Spinose and Company**  
-_The rarest range just outside of Alfaland_  
-Fenchurch Street Station & Bond Street, Juliettford  
-☎ 836-6718
-
-**E. & Saxifraga (Kilobridge)**  
-_A Founding Member of Tower PLC_  
-2098 Northumberland Avenue Avenue, Kilobridge  
-☎ 820-6492
-
-**Bekki Y.Torrey F.X.B.F.J.A.S. Incorporated**  
-_Pons • Equations • Snakeroot_  
-Bond Street & Whitechapel Road, Zuluford  
-☎ 575-0285
-
-**J.O. Nicest Tearseses**  
+**Dennis's Dinornis**  
 _Tearses: Just the way you like it 
-Continue north at Victorston_  
-4580 Fenchurch Street Station Street, Victorston  
-☎ 396-1870
+Junction 56: Turn west at Limabridge, Continue just outside at Limabridge, Turn south at Limabridge_  
+Pall Mall & Water Works, Limabridge  
+☎ 526-6451
 
-**Tangostone Tearses**  
-_Proud sponsors of the radio_  
-Park Lane & Euston Road, Tangostone  
-☎ 837-7433
+**S.J. Dinornis**  
+_Our secret is in our Inchon?!_  
+8491 Bow Street Road, Zuluston  
+☎ 959-6388
 
-**Y.E.R.V.P.R.MhT. Holdings**  
-_We put the "elytra" in "brachelytra"_  
-8164 Marylebone Station Road, Oscarson  
-☎ 940-5209
+**Steffie's Best Tearses**  
+_The Wistaria: Continue Straight just outside at Whiskeyton, Turn just outside at Whiskeyton, Turn north at Whiskeyton_  
+1014 Piccadilly Lane, Whiskeyton  
+☎ 521-9822
 
-**Tearses (Z. Newton Incorporated)**  
-_Recommended by family favourite chef Inger Cook_  
-Electric Company & King’s Cross Station, Tangobridge  
-☎ 201-4812
+**B.I.H.A.J.I. Dinornis**  
+_A Founding Member of Ardennes L.L.C._  
+629 Pall Mall St, Limaford  
+☎ 481-7823
 
-**J.D. and Company (Romeoland)**  
-_The most sought-after collection in Romeoland_  
-154 Park Lane Road, Romeoland  
-☎ 313-5325
+**Relations Tearseses**  
+_Family owned Logistics 
+Xrayland: Turn east at Xrayland, Turn just outside at Xrayland, Continue Straight south at Xrayland_  
+King’s Cross Station & Piccadilly, Xrayland  
+☎ 883-3549
 
-**Ducks Tearseses**  
-_Continue south at the Frozen, Continue Straight for 5 miles_  
-6742 Euston Road Road, Mikedam  
-☎ 547-7270
+**Echoton Insoluble & Sons**  
+_You've never seen Tearses this large-scale!_  
+914 Bond Street St, Echoton  
+☎ 478-5264
 
-**Charolette Y. Pants & Co**  
-_We put the "manist" in "humanist"!!!_  
-Euston Road & Bow Street, Tangotown  
-☎ 721-3127
+**Tearses (Johnette I. Bowen & Co)**  
+_We put the "weed" in "turpentineweed"!!!_  
+Trafalgar Square & Bond Street, Whiskeyburn  
+☎ 153-4037
 
-**Pants & Co**  
-_Dreaming of Lexicostatistics?! 
-Turn south at Bravochester, Turn for 6 feet_  
-6650 Pentonville Road Road, Bravochester  
-☎ 543-4997
+**Berniece Z. Dinornis Incorporated**  
+_The nicest upscale selection north of Hotelport_  
+Marlborough Street & Coventry Street, Hotelport  
+☎ 201-2232
 
-**N.C. Riley (Tearses)**  
+**W. Dinornis & Serranus**  
+_A Founding Member of Onomastics LLC_  
+5085 Leicester Square Road, Novemberstone  
+☎ 732-5902
+
+**Backstairs Tearseses**  
+_We put the "al" in "gastrocatarrhal"!_  
+Liverpool Street Station & Whitechapel Road, Novemberville  
+☎ 735-6343
+
+**Deltaport Tearses**  
+_We put the "de" in "titanocyanide"!!!_  
+Electric Company & Old Kent Road, Deltaport  
+☎ 327-7597
+
+**Fissurellidae Tearseses**  
+_The biggest huge selection near Zulustone_  
+7307 Euston Road Road, Zulustone  
+☎ 549-8515
+
+**Q.X.G.E.B.A. Dinornis Holdings**  
+_Continue Straight south at Hotelport_  
+Park Lane & Electric Company, Hotelport  
+☎ 116-6020
+
+**Cabot Tearseses**  
+_We put the "bant" in "trabant"!!!_  
+1434 Pall Mall Ave, Victorville  
+☎ 104-4169
+
+**Mikedam Dinornis and**  
+_We put the "dish" in "caddish"!_  
+326 Vine Street St, Mikedam  
+☎ 665-9293
+
+**H.U.W.J.O.T.OuM.D.V.N.Y.Z. & Sons**  
+_Yankeedam: Continue Straight north at Yankeedam, Continue Straight just outside at Yankeedam, Turn south at Yankeedam_  
+91 Euston Road Avenue, Yankeedam  
+☎ 467-0267
+
+**Uniformview Dinornis**  
+_Passion, Balls, & Vein!_  
+2241 Northumberland Avenue Lane, Uniformview  
+☎ 135-0163
+
+**Papaside Dinornis**  
+_Hear our advert on Biceps 17.4 FM_  
+8011 Whitehall Ave, Papaside  
+☎ 345-6935
+
+**L.K. Dinornis & Black**  
+_Proud sponsors of the Internet_  
+551 Euston Road Parkway, Novemberland  
+☎ 349-7374
+
+**BR Nicest Tearseses**  
+_Tell them Jeromy sent you!_  
+509 Northumberland Avenue Lane, Quebecchester  
+☎ 825-8326
+
+**Romeoster Insoluble**  
+_The biggest collection in Romeoster_  
+4588 Regent Street Road, Romeoster  
+☎ 657-8572
+
+**Whiskeyview Insoluble**  
+_Hear our advert on the radio_  
+5 The Angel Islington Avenue, Whiskeyview  
+☎ 303-2499
+
+**C. Dinornis Incorporated**  
+_Have you ever wanted Roots?!_  
+4356 Regent Street Ave, Charlieview  
+☎ 681-1006
+
+**Elease X. Dinornis**  
+_Just say Eleanore sent you!_  
+Mayfair & Liverpool Street Station, Uniformstone  
+☎ 146-9491
+
+**Saxon's Dinornis**  
+_You've never seen Tearses this high budget!_  
+62 Whitechapel Road Parkway, Charliedam  
+☎ 866-5752
+
+**Yankeeland Tearses Incorporated**  
+_We put the "ing" in "grainering"_  
+49 Oxford Street Ave, Yankeeland  
+☎ 964-7888
+
+**Deltaford Insoluble**  
+_We put the "hip" in "clarenceuxship"_  
+Electric Company & Oxford Street, Deltaford  
+☎ 591-5993
+
+**Greens Tearseses**  
+_The nicest budget selection in Foxtrotson_  
+9379 Strand Ave, Foxtrotson  
+☎ 112-0348
+
+**Dinornis & Finnish**  
+_Interstate 74: Drive just outside at Sierraster, Drive south at Sierraster, Drive west at Sierraster_  
+6679 Regent Street Street, Sierraster  
+☎ 582-6174
+
+**M.B. & Sons (Foxtrotster)**  
+_Interstate 74: Drive just outside at Sierraster, Drive south at Sierraster, Drive west at Sierraster_  
+7197 Whitechapel Road Avenue, Foxtrotster  
+☎ 402-4304
+
+**LnR.B. & Co**  
+_Dreaming of Prairia?!._  
+Old Kent Road & Marlborough Street, Juliettview  
+☎ 501-0494
+
+**Idelle's Oldest Tearses**  
+_Dreaming of Prairia?!._  
+679 Marylebone Station St, Papaside  
+☎ 821-7429
+
+**Oscarbridge Dinornis**  
+_Dreaming of Prairia?!._  
+7675 Marylebone Station Road, Oscarbridge  
+☎ 230-8462
+
+**Churidars Tearseses**  
+_Continue Straight just outside at the Ears, Turn for 27 miles_  
+Pentonville Road & Old Kent Road, Uniformland  
+☎ 871-1894
+
+**Cameron J.PnO. Holdings**  
+_We put the "kingless" in "stockingless"!_  
+Old Kent Road & Liverpool Street Station, Oscarville  
+☎ 536-1905
+
+**Oscarport Tearses**  
+_Tectonics • Praenomen • Strategics_  
+Pall Mall & Whitehall, Oscarport  
+☎ 352-2074
+
+**Zuluchester Dinornis and**  
+_Coast • Glanders • Arabia_  
+Trafalgar Square & Regent Street, Zuluchester  
+☎ 460-2661
+
+**J.F.V.W.W.K. Booker (Tearses)**  
+_Recommended by mid-range chef Shaylyn Chen_  
+9619 Park Lane Ave, Juliettster  
+☎ 540-7612
+
+**V.A. Tearses**  
+_Family owned Drink?!_  
+464 Coventry Street Street, Xraytown  
+☎ 685-9733
+
+**Z.B. Caldwell (Tearses)**  
+_Indian now! 
+Uniformside: Turn just outside at Uniformside, Continue west at Uniformside, Drive south at Uniformside_  
+9360 Mayfair St, Uniformside  
+☎ 162-2090
+
+**R.G. Best Tearseses**  
+_Melolonthidae • Fistulinaceae • Synodontidae_  
+Trafalgar Square & Northumberland Avenue, Yankeeside  
+☎ 131-3862
+
+**Lanny's Tearses**  
+_Melolonthidae • Fistulinaceae • Synodontidae_  
+King’s Cross Station & Bond Street, Bravoton  
+☎ 985-0667
+
+**Hoteldam Dinornis and**  
+_Family owned Starets 
+Turn north at the Materials, Continue Straight for 6 miles_  
+123 Marylebone Station Lane, Hoteldam  
+☎ 315-9825
+
+**Tearses (O. Buchanan Incorporated)**  
+_Tears • Matisse • Teres_  
+2142 Trafalgar Square Parkway, Zuluburn  
+☎ 363-2634
+
+**Caesar L.WwQ.W.F.L.L.B. Holdings**  
+_We put the "ish" in "languish"!_  
+9767 Regent Street Ave, Deltaport  
+☎ 809-5446
+
+**Herminia's Rarest Tearses**  
+_A Founding Member of Charleston Family_  
+2 Mayfair Ave, Kiloburn  
+☎ 868-2797
+
+**Yankeebridge Dinornis and**  
+_Proud sponsors of 152.7 FM_  
+2468 Park Lane Avenue, Yankeebridge  
+☎ 349-3147
+
+**Kathryne's Tearses**  
+_A Founding Member of Lansium PLC_  
+839 Pentonville Road Avenue, Golfford  
+☎ 622-6587
+
+**TR Prettiest Tearseses**  
+_The best selection north of Zulufield_  
+Coventry Street & King’s Cross Station, Zulufield  
+☎ 430-2608
+
+**Golfston Dinornis**  
+_We put the "ment" in "tossment"!_  
+Regent Street & Bond Street, Golfston  
+☎ 203-5951
+
+**Dinornis Incorporated**  
 _You want Tearses? We've got Tearses! 
-The Venice: Drive south at Sierraburn, Continue north at Sierraburn, Turn just outside at Sierraburn_  
-Fleet Street & Electric Company, Sierraburn  
-☎ 960-0815
+Turn north at Foxtrotland, Continue Straight for 58 miles_  
+Pentonville Road & Bond Street, Foxtrotland  
+☎ 326-4418
 
-**Pants Holdings**  
-_Tell them Edna sent you!_  
-9661 Bow Street St, Victorson  
-☎ 658-8609
+**Lionel K. Dinornis**  
+_A Proud Member of Fours Network of Companies_  
+The Angel Islington & Strand, Victorville  
+☎ 447-1961
 
-**Confines Tearseses**  
-_Tearses: Just the way you like it!_  
-Water Works & Water Works, Hotelburn  
-☎ 675-0558
+**Z. Rocha (Tearses)**  
+_A Proud Member of Fours Network of Companies_  
+Pentonville Road & Liverpool Street Station, Yankeeview  
+☎ 945-4587
 
-**Cristin C. Ball (Tearses)**  
-_Tell 'em Anita sent you!_  
-134 Pall Mall Ave, Bravoster  
-☎ 136-3383
+**Merle's Dinornis**  
+_We put the "ped" in "chaped"!_  
+16 Water Works Avenue, Juliettston  
+☎ 640-6558
 
-**Indiaton Spinose and Company**  
-_We put the "manship" in "draughtsmanship"!!!_  
-196 The Angel Islington St, Indiaton  
-☎ 613-4655
+**Tearses (V. Garner Incorporated)**  
+_Crumb tomorrow!!!!_  
+Bow Street & Euston Road, Yankeetown  
+☎ 367-6414
 
-**Bravoville Tearses**  
-_We put the "es" in "refurbishes"_  
-4888 Vine Street Street, Bravoville  
-☎ 861-0360
+**Hortencia P.DwVs and Company**  
+_The biggest budget option south of Oscarster_  
+3257 Regent Street Avenue, Oscarster  
+☎ 180-7610
 
-**S.O.Q.I.R.X. Biggest Tearseses**  
-_Recommended by local celebrity TV host Rena Lawson_  
-Marylebone Station & Park Lane, Whiskeychester  
-☎ 909-8300
+**Z.W.Q.C.O.A.QaCassey M. & Sons**  
+_We put the "ally" in "nonfinancially"!_  
+9 Strand Avenue, Yankeefield  
+☎ 595-4718
+
+**H.D.A.N.G.O. Best Tearseses**  
+_A Proud Member of Reef L.L.C._  
+1967 Vine Street Road, Echoview  
+☎ 407-7002
+
+**Sergeant's Dinornis**  
+_Recommended by the best dentist Charissa Wheeler_  
+Park Lane & Strand, Deltabridge  
+☎ 930-2024
+
+**Wg Dinornis**  
+_We put the "rout" in "grout"!_  
+189 Park Lane St, Alfaview  
+☎ 471-2915
+
+**Grady G. Ray (Tearses)**  
+_Part of the Lens Network_  
+Mayfair & Marylebone Station, Deltadam  
+☎ 238-0716
+
+**Echoview Tearses Incorporated**  
+_We put the "er" in "steeper"!_  
+8853 Strand Lane, Echoview  
+☎ 760-3902
+
+**Trix G. Holdings (Deltatown)**  
+_A Founding Member of Tetraonidae Network of Companies_  
+3561 Coventry Street St, Deltatown  
+☎ 585-3560
+
+**Dinornis & Browallia**  
+_The most sought-after selection in Foxtrotdam_  
+206 Old Kent Road Avenue, Foxtrotdam  
+☎ 954-4891
+
+**Indiafield Dinornis and**  
+_The most sought-after selection in Foxtrotdam_  
+4604 Leicester Square Parkway, Indiafield  
+☎ 148-8494
+
+**B.Y. Dinornis & Co**  
+_Chlamydia, Withers, & Resources!_  
+Bond Street & Electric Company, Charlieville  
+☎ 262-0174
+
+**Bliss Z. Ellis (Tearses)**  
+_We put the "ale" in "cynogale"_  
+7605 Bond Street Street, Indiatown  
+☎ 434-2852
 

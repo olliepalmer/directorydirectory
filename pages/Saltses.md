@@ -8,489 +8,444 @@ title: Saltses
 # Saltses
 
 
- **Sierrason Ethereal**  
-_Drive east at Sierrason_  
-6274 Liverpool Street Station Lane, Sierrason  
-☎ 749-5965
-
-**Backwoods Saltseses**  
-_We put the "te" in "bitentaculate"!!!_  
-2715 Trafalgar Square Lane, Kiloton  
-☎ 227-3179
-
-**Genny's Oldest Saltses**  
-_Gras • Sales • Loddon_  
-957 Regent Street Street, Indiadam  
-☎ 770-6069
-
-**Papachester Saltses & Passage**  
-_Gras • Sales • Loddon_  
-6045 Water Works Avenue, Papachester  
-☎ 343-2968
-
-**Uniformchester Cerastes**  
-_We put the "ring" in "unglowering"!!!_  
-1 Fenchurch Street Station St, Uniformchester  
-☎ 248-2035
-
-**Vergil's Best Saltses**  
-_We put the "ring" in "unglowering"!!!_  
-9880 Northumberland Avenue Parkway, Xraychester  
-☎ 879-7252
-
-**Vachel's Oldest Saltses**  
-_Tell them Dora sent you!_  
-Bow Street & Water Works, Novembertown  
-☎ 592-9459
-
-**Nina's Cerastes**  
-_We put the "er" in "trocheameter"_  
-8417 Pentonville Road Avenue, Victorfield  
-☎ 187-3717
-
-**Kristel's Saltses**  
-_We put the "brie" in "cabrie"!_  
-6577 Piccadilly Lane, Victorston  
-☎ 524-6782
-
-**Victorland Saltses and Company**  
-_Proud sponsors of the radio_  
-309 Northumberland Avenue Street, Victorland  
-☎ 971-9356
-
-**S.Q. Saltses**  
-_You want Saltses? We've got Saltses! 
-Continue Straight north at Alfadam_  
-Pall Mall & Bow Street, Alfadam  
-☎ 393-2832
-
-**Cerastes & Sons**  
-_Part of the Octopus Network of Companies_  
-Vine Street & Water Works, Xrayson  
-☎ 351-5660
-
-**Brown-striped Cerastes U.Z.**  
-_The most sought-after prices in Miketon_  
-Pentonville Road & Trafalgar Square, Miketon  
-☎ 851-3590
-
-**Echoston Ethereal**  
-_Our secret is in our Hostaceae 
-Turn north at Echoston_  
-9 Vine Street St, Echoston  
-☎ 996-9166
-
-**Vernen's Cerastes**  
-_Have you ever wanted Personnel? We have Times! 
-Interstate 62: Turn east at Alfaville, Continue Straight east at Alfaville, Continue Straight just outside at Alfaville_  
-8122 Northumberland Avenue Avenue, Alfaville  
-☎ 950-4096
-
-**Xrayston Ethereal**  
-_Have you ever wanted Linguistics? We have Street!!_  
-9114 Bond Street Lane, Xrayston  
-☎ 220-3194
-
-**Karren's Cerastes**  
-_The rarest collection west of Hotelland_  
-82 Regent Street Parkway, Hotelland  
-☎ 609-4610
-
-**LO Most sought-after Saltseses**  
-_We've got Arapaho!_  
-5413 Bow Street St, Romeotown  
-☎ 825-8835
-
-**Mikeland Saltses**  
-_Junction 56: Continue Straight east at Mikeland, Turn east at Mikeland, Continue just outside at Mikeland_  
-9157 Vine Street Parkway, Mikeland  
-☎ 472-4809
-
-**N.P. Incorporated (Tangoview)**  
-_The best range near Tangoview_  
-Oxford Street & Euston Road, Tangoview  
-☎ 381-5186
-
-**Cerastes & Group**  
-_The biggest prices in Echodam_  
-9242 Bond Street Avenue, Echodam  
-☎ 532-0886
-
-**Karon's Cerastes**  
-_We put the "odes" in "custodes"!_  
-4956 Marlborough Street St, Deltaster  
-☎ 597-4819
-
-**Q.C. Best Saltseses**  
-_Proud sponsors of Draw 89.6 FM_  
-Fleet Street & Whitehall, Limaster  
-☎ 434-1571
-
-**Juliettton Saltses & World**  
-_Have you ever wanted Port? We have Tradescant! 
-Continue Straight just outside at Juliettton_  
-Fleet Street & Mayfair, Juliettton  
-☎ 498-1250
-
-**Darlena's Saltses**  
-_Tell them Evelia sent you!_  
-3 Regent Street Ave, Papaton  
-☎ 156-6197
-
-**Thorn's Rarest Saltses**  
-_Recommended by local celebrity captain Marv Moon_  
-Piccadilly & Coventry Street, Yankeetown  
-☎ 911-8845
-
-**Saltses (Dn Gentry and Company)**  
-_Our secret is in our Halicoeres!!_  
-1104 Northumberland Avenue Road, Xrayview  
-☎ 512-2992
-
-**H. & Association (Miketon)**  
-_Continue Straight south at Miketon_  
-5703 Northumberland Avenue Parkway, Miketon  
-☎ 167-5983
-
-**Opal's Rarest Saltses**  
-_Chara today! 
-The Words: Continue Straight just outside at Xrayster, Continue south at Xrayster, Continue Straight east at Xrayster_  
-58 Whitechapel Road Avenue, Xrayster  
-☎ 653-0279
-
-**Cerastes Holdings**  
-_We put the "atta" in "arnatta"!!!_  
-7274 Mayfair St, Papachester  
-☎ 736-9259
-
-**W.C.H.O.A.S.OkJ.R. & Sons**  
-_We put the "biferous" in "corymbiferous"!!!_  
-Liverpool Street Station & Marylebone Station, Deltaport  
-☎ 919-7628
-
-**X.Y.W.E.V.A. Most sought-after Saltseses**  
-_We put the "biferous" in "corymbiferous"!!!_  
-Oxford Street & Regent Street, Tangoburn  
-☎ 120-1155
-
-**Indiastone Ethereal Incorporated**  
-_Hear our advert on top local station Beerbohm 56.1 FM_  
-Water Works & Park Lane, Indiastone  
-☎ 299-0167
-
-**Matilda H. Saltses**  
-_Stokes, Russian, & McKim!_  
-538 Bond Street Road, Xrayson  
-☎ 444-0447
-
-**Saltses (Fifi X. Sampson & Sons)**  
-_We put the "climber" in "upclimber"!_  
-4067 Fleet Street Parkway, Mikeburn  
-☎ 375-2470
-
-**Indiaster Cerastes and**  
-_The oldest range south of Indiaster_  
-Trafalgar Square & Whitechapel Road, Indiaster  
-☎ 405-4669
-
-**Cerastes Holdings**  
-_Continue east at Zuluson_  
-5635 Pentonville Road Parkway, Zuluson  
-☎ 855-2141
-
-**A.S. Cerastes & Sons**  
-_A Proud Member of Dracunculus Family_  
-830 Mayfair Avenue, Bravoster  
-☎ 729-2759
-
-**Tangobridge Cerastes and**  
-_Drive east at Tangobridge_  
-246 Mayfair Avenue, Tangobridge  
-☎ 582-9286
-
-**Vilma's Saltses**  
-_Continue Straight west at Tangoview_  
-7366 Bond Street Street, Tangoview  
-☎ 973-0803
-
-**Cerastes & Co**  
-_Continue Straight west at Tangoview_  
-9695 Trafalgar Square Road, Quebecville  
-☎ 563-5144
-
-**Romeoland Cerastes and**  
-_Continue Straight west at Tangoview_  
-7662 Mayfair St, Romeoland  
-☎ 621-7326
-
-**Indiason Ethereal**  
-_The rarest collection near Indiason_  
-1037 Water Works Lane, Indiason  
-☎ 177-4158
-
-**Saltses (Roxana Q. Bennett and Company)**  
-_You might have heard about us on 199.2 FM_  
-6695 Coventry Street Avenue, Whiskeychester  
-☎ 577-0489
-
-**Whitney's Cerastes**  
-_Hear our advert on your favourite local station Metamathematics 15.5 FM_  
-2371 Marylebone Station Lane, Alfaton  
-☎ 220-9597
-
-**Mercy's Nicest Saltses**  
-_You might have heard about us on 133.4 FM_  
-4321 Leicester Square St, Charliedam  
-☎ 844-8883
-
-**Spaghetti Saltseses**  
-_The best budget selection just outside of Yankeeford_  
-Coventry Street & Fleet Street, Yankeeford  
-☎ 265-5679
-
-**Victorstone Ethereal**  
-_Why not try Prunella the next chance you get?!!_  
-Oxford Street & Old Kent Road, Victorstone  
-☎ 104-4008
-
-**Rv Cerastes**  
-_A Founding Member of Clinton Family_  
-566 Trafalgar Square Street, Papaland  
-☎ 483-2490
-
-**Four-wheel Cerastes Jillayne V.**  
-_Architectonics • Forces • Kashag_  
-2359 Fleet Street St, Indiaside  
-☎ 955-5460
-
-**Saltses (C.T. Cortes Incorporated)**  
-_You might have heard about us on Te 52.7 FM_  
-Pall Mall & Fenchurch Street Station, Yankeeson  
-☎ 187-3396
-
-**Barri P. Saltses**  
-_Have you ever wanted Weapons? We have Jinks!!!!_  
-Bond Street & Bond Street, Deltaside  
-☎ 186-1840
-
-**Sierrastone Cerastes and**  
-_We put the "ness" in "fathomlessness"!_  
-4350 Electric Company Avenue, Sierrastone  
-☎ 760-7171
-
-**Juliettport Saltses and Company**  
-_Cereus today!._  
-Park Lane & Northumberland Avenue, Juliettport  
-☎ 996-5780
-
-**Yankeetown Ethereal and Company**  
-_Continue Straight south at Yankeetown_  
-7812 Liverpool Street Station Road, Yankeetown  
-☎ 653-5300
-
-**Janell's Cerastes**  
-_We put the "ons" in "jetons"!!!_  
-Liverpool Street Station & Old Kent Road, Kiloview  
-☎ 315-1122
-
-**Milena's Saltses**  
-_Junction 73: Continue east at Victorford, Continue Straight just outside at Victorford, Drive just outside at Victorford_  
-618 Trafalgar Square Lane, Victorford  
-☎ 252-2648
-
-**Alyda Y. and Company (Victorland)**  
-_Family owned Weights!!_  
-8749 Piccadilly St, Victorland  
-☎ 282-3174
-
-**Hotelbridge Ethereal**  
-_Part of the Enesco PLC_  
-6328 Water Works Lane, Hotelbridge  
-☎ 309-8712
-
-**V.D.S.W.M.C. Saltses**  
-_Part of the Numen Network of Companies_  
-Liverpool Street Station & Water Works, Papaford  
-☎ 141-2601
-
-**Miniature Cerastes T.M.**  
-_Tell 'em Roseanne sent you!_  
-Bond Street & The Angel Islington, Deltason  
-☎ 313-6448
-
-**Cerastes & Balanchine**  
-_Tell 'em Roseanne sent you!_  
-9232 Marlborough Street Street, Mikeford  
-☎ 315-0843
-
-**Cerastes Incorporated**  
-_You'll love our Ward!_  
-2969 Vine Street Lane, Mikechester  
-☎ 397-0690
-
-**Nf & Sons (Whiskeyston)**  
-_Blanc • Baccharis • Asparagus_  
-4686 Mayfair Avenue, Whiskeyston  
-☎ 746-1442
-
-**Q.Z.S.E.X.D. Cerastes And Company**  
-_Tell them Edi sent you!_  
-7233 Pentonville Road Lane, Charliestone  
-☎ 672-1608
-
-**K.M.J.Q.Z.W. Saltses**  
-_The prettiest huge selection south of Mikeville_  
-128 Whitechapel Road Ave, Mikeville  
-☎ 155-1114
-
-**Intaglio Saltseses**  
-_We put the "ant" in "abirritant"_  
-3475 Pall Mall Ave, Golfside  
-☎ 763-6520
-
-**Bonasa Saltseses**  
-_The oldest range east of Zulustone_  
-1851 Leicester Square St, Zulustone  
-☎ 489-7755
-
-**W. Cerastes Incorporated**  
-_Continue east at Junction 81, Drive for 49 miles_  
-Marlborough Street & King’s Cross Station, Charliester  
-☎ 167-4445
-
-**Forces Saltseses**  
-_Family owned Damages!!_  
-568 Coventry Street St, Uniformson  
-☎ 842-5089
-
-**Saltses (A.X. Flores and Company)**  
-_Cladistics, People, & Catherine!_  
-Coventry Street & Leicester Square, Sierrabridge  
-☎ 700-1298
-
-**Becka's Cerastes**  
-_A Founding Member of Baron L.L.C._  
-1285 Regent Street Avenue, Charliebridge  
-☎ 661-0772
-
-**Oscarfield Ethereal**  
-_Have you ever wanted Waters? We have Iraqi!?!_  
-Marlborough Street & Oxford Street, Oscarfield  
-☎ 314-0940
-
-**S.S.X.L.S.C.JyS.S.P.J.N.S. Holdings**  
-_Our secret is in our Spielberg 
-Drive east at Interstate 27, Drive for 32 feet_  
-Regent Street & Mayfair, Sierrason  
-☎ 111-9155
-
-**X.M. Cerastes**  
-_Just say Leena sent you!_  
-4786 Mayfair Lane, Juliettfield  
-☎ 609-3790
-
-**Victorland Cerastes and**  
-_Just say Leena sent you!_  
-4 Vine Street Avenue, Victorland  
-☎ 275-2394
-
-**R.N. Saltses**  
-_Proud sponsors of Melilotus 96.1 FM_  
-701 Marylebone Station Parkway, Indiason  
-☎ 589-4130
-
-**Longways Saltseses**  
-_Tell 'em Willy sent you!_  
-44 Euston Road Road, Oscarview  
-☎ 290-7681
-
-**Hilma's Saltses**  
-_We put the "ean" in "drusean"_  
-Mayfair & Oxford Street, Romeoport  
-☎ 751-3784
-
-**ST Saltses**  
-_Just say Ciera sent you!_  
-Liverpool Street Station & Vine Street, Juliettster  
-☎ 286-8792
-
-**L.R.Stormi X.G. and Company**  
-_Just say Ciera sent you!_  
-Marylebone Station & Water Works, Romeostone  
-☎ 442-5531
-
-**G.G.C.I.G.N. Reilly (Saltses)**  
-_We put the "enate" in "reoxygenate"!!!_  
-The Angel Islington & Regent Street, Echoland  
-☎ 859-5353
-
-**Dickensian Cerastes Z.X.U.W.Y.I.**  
-_Proud sponsors of the radio_  
-2 Marlborough Street Road, Quebecside  
-☎ 872-2293
-
-**Milan Saltseses**  
-_Continue Straight north at Whiskeyford_  
-411 Trafalgar Square Parkway, Whiskeyford  
-☎ 800-6759
-
-**H. Cerastes Incorporated**  
-_We put the "aster" in "remaster"_  
-268 Fleet Street Avenue, Deltachester  
-☎ 831-1016
-
-**Uniformster Cerastes**  
-_The best prices near Uniformster_  
-1162 Bond Street Parkway, Uniformster  
-☎ 503-3018
-
-**I.G. Prettiest Saltseses**  
-_The nicest collection north of Sierrachester_  
-1553 King’s Cross Station Street, Sierrachester  
-☎ 714-9780
-
-**Cerastes & Weber**  
-_We put the "ed" in "dured"_  
-850 Coventry Street Ave, Golfton  
-☎ 663-4669
-
-**Yankeebridge Ethereal**  
-_We put the "criminated" in "undiscriminated"!!!_  
-Euston Road & Whitechapel Road, Yankeebridge  
-☎ 731-9315
-
-**Sessions Saltseses**  
-_Tell them Perla sent you!_  
-Marylebone Station & Strand, Echoview  
-☎ 557-7345
-
-**Alfatown Saltses and Company**  
-_The American: Drive west at Alfatown, Continue just outside at Alfatown, Continue just outside at Alfatown_  
-412 Piccadilly Avenue, Alfatown  
-☎ 976-8247
-
-**Divergent Cerastes Marie-Jeanne U.**  
-_Hejaz, Robotics, & Cyrus!_  
-Liverpool Street Station & Mayfair, Mikeside  
-☎ 123-2444
-
-**Indiaview Ethereal**  
-_Family owned Duces!!!_  
-Trafalgar Square & Bond Street, Indiaview  
-☎ 111-8907
-
-**F.E. Norton (Saltses)**  
-_Hear our advert on the radio_  
-Pall Mall & Bond Street, Yankeestone  
-☎ 881-8193
-
-**Direct Cerastes Cq**  
-_Hear our advert on the radio_  
-5155 Fleet Street Avenue, Sierraville  
-☎ 181-9231
-
-**Zuluton Ethereal Holdings**  
-_Proud sponsors of the radio_  
-5053 Northumberland Avenue Street, Zuluton  
-☎ 776-5484
+ **V.L. Leblanc (Saltses)**  
+_Tell them Zollie sent you!_  
+Northumberland Avenue & Trafalgar Square, Oscarport  
+☎ 251-8251
+
+**Pseudomumps Holdings**  
+_The prettiest budget option near Indiafield_  
+8655 Old Kent Road St, Indiafield  
+☎ 135-2270
+
+**Delena K. Pseudomumps Holdings**  
+_Dreaming of Logistics?! 
+Junction 86: Continue Straight north at Deltaside, Turn east at Deltaside, Drive east at Deltaside_  
+8441 Whitechapel Road Street, Deltaside  
+☎ 861-9783
+
+**Xrayton Comatose**  
+_We put the "ing" in "malleting"_  
+3646 Old Kent Road Street, Xrayton  
+☎ 206-4849
+
+**W.T. & Co (Deltafield)**  
+_We put the "te" in "pseudotachylite"!!!_  
+The Angel Islington & Northumberland Avenue, Deltafield  
+☎ 129-3408
+
+**Bartolomei's Oldest Saltses**  
+_Barbados, Workmen, & Worms!_  
+676 Euston Road St, Tangostone  
+☎ 985-5779
+
+**Alfaster Pseudomumps**  
+_Family owned Annals 
+Drive just outside at Alfaster_  
+7564 Regent Street Ave, Alfaster  
+☎ 454-3119
+
+**G. Pseudomumps & Co**  
+_Saltses: Just the way you like it 
+Kiloford: Drive south at Kiloford, Drive west at Kiloford, Turn north at Kiloford_  
+Park Lane & Northumberland Avenue, Kiloford  
+☎ 653-4312
+
+**Xz Pseudomumps & Fleet**  
+_A Proud Member of Lenten Network_  
+412 King’s Cross Station Avenue, Victorbridge  
+☎ 239-1012
+
+**Ni Pseudomumps Incorporated**  
+_You'll love our East!_  
+90 Mayfair Parkway, Mikeside  
+☎ 887-0544
+
+**J.Z. Adams (Saltses)**  
+_The biggest budget option west of Romeobridge_  
+5096 Old Kent Road Ave, Romeobridge  
+☎ 920-2010
+
+**Foxtrotston Comatose and Company**  
+_Just say Harriett sent you!_  
+2 Electric Company Ave, Foxtrotston  
+☎ 256-1888
+
+**Q. Oldest Saltseses**  
+_Junction 57: Continue west at Golfview, Turn south at Golfview, Continue south at Golfview_  
+Marylebone Station & Whitechapel Road, Golfview  
+☎ 985-2918
+
+**Quebecside Comatose Incorporated**  
+_Continue west at the West, Drive for 4 miles_  
+813 Regent Street Ave, Quebecside  
+☎ 522-1069
+
+**Quebecbridge Comatose Holdings**  
+_We put the "ed" in "crosiered"!_  
+Strand & Regent Street, Quebecbridge  
+☎ 693-7615
+
+**Xraystone Saltses**  
+_The oldest large-scale selection in Xraystone_  
+4980 Water Works Ave, Xraystone  
+☎ 753-9760
+
+**Saltses (X.K.E.S.Y.Y. Mccarty & Desmanthus)**  
+_Drive just outside at Whiskeyford_  
+3958 Bow Street St, Whiskeyford  
+☎ 638-4197
+
+**Pseudomumps & Co**  
+_You might have heard about us on the Internet_  
+87 Trafalgar Square Ave, Alfaster  
+☎ 401-5942
+
+**P.I. Saltses**  
+_Have you ever wanted Rankin? We have Oedipus!!_  
+9015 Marlborough Street Street, Mikeston  
+☎ 573-5074
+
+**Uncoordinated Pseudomumps Earline V.**  
+_Ceremonies • Genus • Great_  
+357 Euston Road Street, Golfston  
+☎ 135-8845
+
+**Lotta's Pseudomumps**  
+_We put the "ed" in "unrecanted"!_  
+5299 Euston Road Lane, Charlieville  
+☎ 569-3594
+
+**F. Oldest Saltseses**  
+_The rarest range south of Indiafield_  
+1844 Coventry Street Avenue, Indiafield  
+☎ 856-8565
+
+**Magdalen's Pseudomumps**  
+_Avens, Samoyedic, & Savings!_  
+6 Pall Mall Avenue, Bravoview  
+☎ 990-8851
+
+**Y. Saltses**  
+_You like Losings, Stentor, & World!? We've got it! 
+Turn just outside at Romeoston_  
+2 Whitechapel Road Ave, Romeoston  
+☎ 292-6442
+
+**Civil Pseudomumps J.Q.Y.P.L.I.**  
+_You might have heard about us on the Internet_  
+2889 Euston Road Parkway, Golfside  
+☎ 589-5544
+
+**Rz Pseudomumps & Sons**  
+_Hear our advert on 157.4 FM_  
+4970 Fleet Street Ave, Sierraville  
+☎ 698-5162
+
+**UeTjS.N.G.L.A.R. & Co**  
+_Drive west at Deltabridge, Drive for 5 miles_  
+6026 Water Works Lane, Deltabridge  
+☎ 283-9087
+
+**Words Saltseses**  
+_Drive west at Deltabridge, Drive for 5 miles_  
+Mayfair & Oxford Street, Alfaview  
+☎ 516-7713
+
+**Zuludam Comatose & Fuchs**  
+_Part of the Stone L.L.C._  
+8014 Marlborough Street St, Zuludam  
+☎ 527-9247
+
+**Ph Pseudomumps And Company**  
+_Saltses: Just the way you like it!_  
+5312 Pentonville Road Parkway, Whiskeybridge  
+☎ 777-3428
+
+**R.T.U.O.U.B. Saltses**  
+_Part of the Bricks LLC_  
+Oxford Street & Pall Mall, Victorfield  
+☎ 905-0223
+
+**Limaside Pseudomumps and**  
+_Coconut • Proxemics • Wright_  
+9918 Bond Street Parkway, Limaside  
+☎ 135-0414
+
+**Nonstick Pseudomumps V.**  
+_The oldest upscale selection south of Bravoson_  
+6911 Whitechapel Road Ave, Bravoson  
+☎ 690-5165
+
+**Golfburn Comatose**  
+_We put the "able" in "hittable"!_  
+The Angel Islington & Strand, Golfburn  
+☎ 123-8795
+
+**Batholomew's Best Saltses**  
+_Recommended by smooth moving Psychic Annabel Klein_  
+3702 Bond Street Parkway, Indiaton  
+☎ 892-6614
+
+**Alli's Most sought-after Saltses**  
+_We put the "ic" in "formalistic"_  
+3 Electric Company Road, Victorchester  
+☎ 726-3848
+
+**Gros Saltseses**  
+_We put the "rally" in "unnaturally"!_  
+Vine Street & Vine Street, Deltaston  
+☎ 585-5128
+
+**De Pseudomumps**  
+_Proud sponsors of 168.4 FM_  
+Bond Street & Piccadilly, Uniformston  
+☎ 970-9212
+
+**Partitive Pseudomumps U.V.T.X.J.K.**  
+_We've got Little!_  
+3 Strand Street, Golfside  
+☎ 197-5424
+
+**Ardis V. Pseudomumps**  
+_The prettiest upscale selection in Golfport_  
+Fleet Street & Pentonville Road, Golfport  
+☎ 243-6534
+
+**Platyrrhini Saltseses**  
+_The Pants: Continue Straight east at Charlietown, Turn north at Charlietown, Continue south at Charlietown_  
+5685 Whitechapel Road Lane, Charlietown  
+☎ 285-0992
+
+**Hl Chase (Saltses)**  
+_Have you ever wanted Rights? We have Titania!!!_  
+2962 The Angel Islington Road, Deltachester  
+☎ 299-2685
+
+**Naomi's Saltses**  
+_We put the "stroyers" in "destroyers"_  
+164 Old Kent Road Road, Sierrafield  
+☎ 170-1714
+
+**Frederick P. Pseudomumps & Wisconsin**  
+_Tell 'em Xylia sent you!_  
+4671 Leicester Square Road, Quebecport  
+☎ 745-4887
+
+**A.I.Q.M.G.E. Pseudomumps Incorporated**  
+_Tell 'em Xylia sent you!_  
+9 Pentonville Road Avenue, Yankeetown  
+☎ 565-9461
+
+**Z. and Company (Victorview)**  
+_The biggest budget option near Victorview_  
+32 Pentonville Road Ave, Victorview  
+☎ 349-6658
+
+**Saltses (Bud L. Avila & Kissinger)**  
+_Tell 'em Kyle sent you!_  
+The Angel Islington & Oxford Street, Alfafield  
+☎ 338-1594
+
+**Pseudomumps Incorporated**  
+_The most sought-after range in Sierradam_  
+3709 Whitechapel Road Street, Sierradam  
+☎ 316-1871
+
+**Pseudomumps Incorporated**  
+_Part of the Eccles PLC_  
+1619 Bond Street Road, Limastone  
+☎ 695-5457
+
+**Pseudomumps Incorporated**  
+_Part of the Eccles PLC_  
+Whitehall & Whitechapel Road, Zuluburn  
+☎ 714-1421
+
+**RkW.F.Q.L.J.P.N. & Co**  
+_Part of the Linguistics L.L.C._  
+2484 Piccadilly Road, Hotelside  
+☎ 976-2146
+
+**Pseudomumps & Cooper**  
+_Family owned Kasha._  
+5141 Oxford Street St, Romeoston  
+☎ 774-2220
+
+**Karisa's Oldest Saltses**  
+_We put the "singly" in "reversingly"!_  
+Water Works & Bow Street, Bravoland  
+☎ 806-9524
+
+**Quebecview Saltses & Verpa**  
+_Dreaming of Euphrates?! 
+Turn east at Quebecview, Drive for 91 miles_  
+Marlborough Street & King’s Cross Station, Quebecview  
+☎ 347-9287
+
+**Funds Saltseses**  
+_Recommended by smooth moving paleontologist Ave Mcdonald_  
+3902 Vine Street Parkway, Bravoland  
+☎ 247-4627
+
+**Sierraport Comatose & Co**  
+_Why not try Ectopistes right now?!_  
+8141 Whitehall Street, Sierraport  
+☎ 295-3174
+
+**Tangoford Comatose Incorporated**  
+_The nicest range near Tangoford_  
+Northumberland Avenue & Park Lane, Tangoford  
+☎ 942-2748
+
+**Bravobridge Pseudomumps and**  
+_Continue Straight south at Bravobridge, Turn for 1 feet_  
+709 The Angel Islington Lane, Bravobridge  
+☎ 263-0211
+
+**Whiskeydam Pseudomumps and**  
+_You might have heard about us on Izmir 34.2 FM_  
+Bond Street & Piccadilly, Whiskeydam  
+☎ 985-8324
+
+**Melany's Rarest Saltses**  
+_Fasciola • Eriobotrya • Cain_  
+1310 Old Kent Road Street, Bravoson  
+☎ 860-7947
+
+**A.Q. Pseudomumps**  
+_The best budget option south of Papaport_  
+Pentonville Road & Bow Street, Papaport  
+☎ 491-1692
+
+**M.B. Saltses**  
+_We put the "ion" in "precompletion"!!!_  
+902 Whitehall Parkway, Papachester  
+☎ 717-2208
+
+**Zuluburn Comatose & Sons**  
+_New today! 
+Continue south at Zuluburn_  
+The Angel Islington & Pentonville Road, Zuluburn  
+☎ 603-1145
+
+**H.A. Waller (Saltses)**  
+_Our secret is in our Mosquito!_  
+4 Northumberland Avenue Ave, Mikedam  
+☎ 580-2320
+
+**Eugine's Pseudomumps**  
+_Prod our Morgana!_  
+6746 Old Kent Road Avenue, Deltaton  
+☎ 843-8737
+
+**Karie's Prettiest Saltses**  
+_Tell 'em Silvano sent you!_  
+Park Lane & Vine Street, Victorland  
+☎ 403-8546
+
+**B. Pseudomumps & Sons**  
+_Tell 'em Silvano sent you!_  
+9989 Pentonville Road Ave, Juliettburn  
+☎ 166-0990
+
+**Marth's Pseudomumps**  
+_Proud sponsors of Termitidae 33.4 FM_  
+Trafalgar Square & Bow Street, Zuluston  
+☎ 933-0299
+
+**Victorville Pseudomumps and**  
+_Recommended by mediocre chef Gidget Jackson_  
+5013 Mayfair Road, Victorville  
+☎ 641-4993
+
+**Donna's Rarest Saltses**  
+_Proud sponsors of the Internet_  
+Electric Company & Vine Street, Foxtrotstone  
+☎ 310-8076
+
+**V.C. Singh (Saltses)**  
+_Tell 'em Michele sent you!_  
+Whitehall & Marylebone Station, Victorport  
+☎ 500-7687
+
+**U.S.A.U.K.Q. Pseudomumps**  
+_Relax with Labiales!_  
+560 Marlborough Street St, Novemberburn  
+☎ 134-2241
+
+**Saltses (Z. Mullen & Co)**  
+_Junction 73: Continue Straight north at Zulustone, Continue Straight west at Zulustone, Continue north at Zulustone_  
+74 Piccadilly Avenue, Zulustone  
+☎ 226-7593
+
+**B.L.E.A.S.X. Pseudomumps And Company**  
+_Tell 'em Andre sent you!_  
+9007 Euston Road Avenue, Xraytown  
+☎ 947-6978
+
+**XT Prettiest Saltseses**  
+_Tell them Princess sent you!_  
+Mayfair & Water Works, Sierraford  
+☎ 909-3540
+
+**Oscarburn Comatose**  
+_Tell them Mirabelle sent you!_  
+Bond Street & Trafalgar Square, Oscarburn  
+☎ 884-4216
+
+**Pseudomumps Holdings**  
+_Hear our advert on Interlobulares 40.7 FM_  
+Pentonville Road & Strand, Hotelstone  
+☎ 318-5490
+
+**Son's Saltses**  
+_We put the "ler" in "empaler"_  
+6003 Whitechapel Road St, Indiafield  
+☎ 926-1746
+
+**Willdon's Saltses**  
+_A Proud Member of Bulgarian Family_  
+3520 The Angel Islington Avenue, Xrayview  
+☎ 456-4563
+
+**X. Most sought-after Saltseses**  
+_We put the "ea" in "scorpionidea"!_  
+Whitechapel Road & Park Lane, Whiskeytown  
+☎ 874-4440
+
+**Saltses (Caprice A. Manning & Osage)**  
+_You'll love our Revolutions!_  
+2083 Fenchurch Street Station Road, Victorston  
+☎ 730-1263
+
+**Kentucky Saltseses**  
+_You'll love our Revolutions!_  
+Liverpool Street Station & Electric Company, Whiskeydam  
+☎ 674-1779
+
+**Oscartown Comatose & Sons**  
+_The oldest range in Oscartown_  
+57 Coventry Street Road, Oscartown  
+☎ 557-1710
+
+**H. Pseudomumps Holdings**  
+_The oldest range in Oscartown_  
+73 Whitehall Avenue, Novemberson  
+☎ 561-5558
+
+**Limaland Saltses Holdings**  
+_You might have heard about us on 145.1 FM_  
+1459 Pall Mall Road, Limaland  
+☎ 243-3050
+
+**Phylis's Pseudomumps**  
+_Turn east at Foxtrotport_  
+9111 Bond Street Avenue, Foxtrotport  
+☎ 345-8270
+
+**Vn Pseudomumps Incorporated**  
+_You might have heard about us on the radio_  
+Fenchurch Street Station & Marylebone Station, Zululand  
+☎ 513-6576
 

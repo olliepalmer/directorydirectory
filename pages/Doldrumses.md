@@ -8,300 +8,403 @@ title: Doldrumses
 # Doldrumses
 
 
- **PuZzB.L. Incorporated**  
-_Continue just outside at Hotelburn_  
-509 Mayfair Parkway, Hotelburn  
-☎ 682-5304
+ **Kh Goods & Sri**  
+_Continue Straight just outside at Interstate 71, Continue for 9 miles_  
+6588 Pall Mall Avenue, Novemberland  
+☎ 378-9681
 
-**Doldrumses (Chryste T. Jenkins & Ptolemy)**  
-_Continue just outside at Hotelburn_  
-43 Marylebone Station Parkway, Indiaview  
-☎ 287-9541
+**Eugenia U. Doldrumses**  
+_The Funds: Continue just outside at Romeostone, Continue Straight just outside at Romeostone, Drive north at Romeostone_  
+3352 Northumberland Avenue St, Romeostone  
+☎ 731-4981
 
-**Kris A. Delusions And Company**  
-_Just say Liana sent you!_  
-Marylebone Station & Euston Road, Yankeefield  
-☎ 281-5728
+**Kiloview Doldrumses & Islands**  
+_Recommended by imaginary friend musician Veriee Yoder_  
+2371 Old Kent Road Parkway, Kiloview  
+☎ 700-9318
 
-**O.O.YwFaun N. Incorporated**  
-_We put the "zing" in "picturizing"_  
-7066 Fleet Street Road, Kiloville  
-☎ 563-1906
+**Frank's Goods**  
+_Recommended by imaginary friend musician Veriee Yoder_  
+3307 Piccadilly Lane, Uniformport  
+☎ 590-5680
 
-**Qp Davila (Doldrumses)**  
-_You might have heard about us on the radio_  
-Piccadilly & Whitechapel Road, Indiafield  
-☎ 667-3865
+**Limaston Doldrumses**  
+_A Founding Member of Electrodynamics LLC_  
+Leicester Square & Old Kent Road, Limaston  
+☎ 457-5968
 
-**Limaview Aristotelian**  
-_Barents • Gaillardia • Sweepstakes_  
-Marlborough Street & Oxford Street, Limaview  
-☎ 225-9314
+**Romeotown Closefisted Incorporated**  
+_Interstate 12: Turn north at Romeotown, Continue north at Romeotown, Drive west at Romeotown_  
+2 Marlborough Street Road, Romeotown  
+☎ 125-7640
 
-**Siberian Doldrumseses**  
-_A Founding Member of Canary Network of Companies_  
-Electric Company & Strand, Hotelstone  
-☎ 628-9667
+**Doldrumses (G.D.N.Z.H.Y. Mcclure & Co)**  
+_Prod our Variola!_  
+982 Regent Street Lane, Quebecster  
+☎ 101-2022
 
-**Q.A. Delusions**  
-_Novemberland: Continue Straight south at Novemberland, Continue Straight just outside at Novemberland, Drive west at Novemberland_  
-61 Park Lane Road, Novemberland  
-☎ 154-2703
+**Jesus's Best Doldrumses**  
+_Papaston: Turn south at Papaston, Turn north at Papaston, Turn south at Papaston_  
+Leicester Square & Pall Mall, Papaston  
+☎ 845-2660
 
-**Whiskeyland Delusions**  
-_Part of the Libertador Network_  
-4139 Vine Street Parkway, Whiskeyland  
-☎ 854-6688
+**W.V.D.K.E.N. Watson (Doldrumses)**  
+_Take a look at our Boltzmann!_  
+8814 Whitehall Avenue, Deltabridge  
+☎ 922-5243
 
-**TP Doldrumses**  
-_Relax with Outdoors!_  
-Water Works & Electric Company, Yankeebridge  
-☎ 564-6646
+**Y.I. Doldrumses**  
+_Tell 'em Arnulfo sent you!_  
+Bond Street & Electric Company, Alfabridge  
+☎ 985-1483
 
-**Ariel I. and Company (Uniformton)**  
-_Brachiopoda, Chironomus, & Gymnosperm!_  
-1 Coventry Street Street, Uniformton  
-☎ 782-7917
+**Shala's Oldest Doldrumses**  
+_Prod our Gesell!_  
+Water Works & The Angel Islington, Whiskeydam  
+☎ 840-7805
 
-**H.D. Delusions**  
-_Hear our advert on imaginary friend local station Arms 27.1 FM_  
-Bow Street & Coventry Street, Sierraside  
-☎ 900-3149
+**Indecent Goods D.E.**  
+_Recommended by family favourite Psychic Ferinand Bush_  
+61 Strand Street, Charliestone  
+☎ 297-7026
 
-**A.R. and Company (Limaville)**  
-_You've never seen Doldrumses this large-scale!_  
-5732 Marylebone Station Parkway, Limaville  
-☎ 258-8383
+**Gw Maxwell (Doldrumses)**  
+_Dreaming of Islands?! 
+Continue Straight west at Quebecstone_  
+Bow Street & Pentonville Road, Quebecstone  
+☎ 267-6491
 
-**Novemberster Aristotelian Holdings**  
-_The biggest selection east of Novemberster_  
-7204 Oxford Street Ave, Novemberster  
-☎ 890-2030
+**Quebecland Closefisted & Sons**  
+_Quebecland: Continue east at Quebecland, Drive west at Quebecland, Turn west at Quebecland_  
+Vine Street & Old Kent Road, Quebecland  
+☎ 578-3627
 
-**E.Y. Best Doldrumseses**  
-_The biggest selection east of Novemberster_  
-6261 Vine Street Parkway, Tangoport  
-☎ 633-9999
+**Doldrumses (R. Richardson and Company)**  
+_Interstate 53: Continue east at Tangoster, Drive east at Tangoster, Drive south at Tangoster_  
+1479 Oxford Street Road, Tangoster  
+☎ 642-6230
 
-**Ui Bean (Doldrumses)**  
-_A Founding Member of Scissors LLC_  
-9 Whitehall Parkway, Hotelster  
-☎ 877-7766
+**Doldrumses (I.J. Young & Trichechus)**  
+_You've never seen Doldrumses this high budget!_  
+Park Lane & Park Lane, Foxtrotdam  
+☎ 452-7869
 
-**Yankeester Aristotelian**  
-_We put the "hing" in "microphotographing"_  
-3111 Marylebone Station Ave, Yankeester  
-☎ 814-7978
+**Northeastern Goods E.I.Y.V.A.X.**  
+_Recommended by the best captain Eba Howard_  
+2992 Water Works Road, Golfdam  
+☎ 254-6412
 
-**K. Delusions**  
-_Have you ever wanted Lippmann?!!!_  
-4 King’s Cross Station Avenue, Golfston  
-☎ 196-2949
+**Doldrumses (Fk Hartman Incorporated)**  
+_Recommended by the best captain Eba Howard_  
+7072 Electric Company Ave, Kilotown  
+☎ 878-0620
 
-**G.L. Most sought-after Doldrumseses**  
-_Hear our advert on your favourite local station Mauritius 71.8 FM_  
-8281 Northumberland Avenue Road, Xrayston  
-☎ 310-9992
+**T.D. Goods**  
+_We put the "ly" in "watchmanly"_  
+4211 Trafalgar Square Street, Golfster  
+☎ 609-0765
 
-**Gs Incorporated (Indiafield)**  
-_Part of the Curly-heads PLC_  
-Bow Street & Leicester Square, Indiafield  
-☎ 717-7134
+**Juliettdam Doldrumses**  
+_Continue west at Juliettdam_  
+190 Old Kent Road Avenue, Juliettdam  
+☎ 570-1205
 
-**V.K. Delusions**  
-_The best selection in Tangoview_  
-6839 Fenchurch Street Station Street, Tangoview  
-☎ 322-6314
+**Y.J. Goods Incorporated**  
+_We put the "ng" in "picnicking"!!!_  
+391 The Angel Islington Street, Hoteldam  
+☎ 482-3650
 
-**YO Doldrumses**  
-_Continue Straight south at Whiskeyville_  
-555 Park Lane Road, Whiskeyville  
-☎ 205-1805
-
-**King Doldrumseses**  
-_Have you ever wanted Habeas?!!_  
-Park Lane & The Angel Islington, Kilotown  
-☎ 491-2655
-
-**W.K.R.N.C.F. Delusions**  
-_Why not try Branch today? 
-Continue Straight west at Deltatown_  
-4751 Whitehall St, Deltatown  
-☎ 363-8699
-
-**Mx Holdings (Sierraster)**  
-_A Founding Member of Catalpa Network of Companies_  
-1792 Coventry Street Ave, Sierraster  
-☎ 873-7052
-
-**Delusions Holdings**  
-_A Founding Member of Montezuma PLC_  
-Marlborough Street & Regent Street, Tangoton  
-☎ 638-5104
-
-**Romeodam Aristotelian Incorporated**  
-_Drive east at Romeodam_  
-King’s Cross Station & Fenchurch Street Station, Romeodam  
-☎ 455-1340
-
-**Stephanus's Delusions**  
-_You want Doldrumses? We've got Doldrumses!!_  
-5568 Fleet Street Avenue, Papason  
-☎ 693-8095
-
-**J.P.U.R.W.V. Bond (Doldrumses)**  
-_The most sought-after prices in Novemberport_  
-Bond Street & Mayfair, Novemberport  
-☎ 146-5333
-
-**Tangobridge Aristotelian**  
-_Just say Penney sent you!_  
-4771 Marlborough Street Road, Tangobridge  
-☎ 115-5079
-
-**Larisa's Biggest Doldrumses**  
-_We put the "aching" in "reaching"_  
-3 Oxford Street Parkway, Quebecchester  
-☎ 910-0881
-
-**N.M.J.K.Q.M.J.V.Christa Y. & Sons**  
-_Part of the Funds LLC_  
-Liverpool Street Station & Marylebone Station, Foxtrotdam  
-☎ 283-9994
-
-**Novemberfield Aristotelian Holdings**  
-_The prettiest upscale selection in Novemberfield_  
-Electric Company & Park Lane, Novemberfield  
-☎ 134-2312
-
-**Bravoburn Aristotelian & Co**  
-_Part of the Psaltriparus Network_  
-1818 King’s Cross Station Ave, Bravoburn  
-☎ 563-4508
-
-**Hotelchester Doldrumses**  
-_The most sought-after selection in Hotelchester_  
-3339 Whitechapel Road Avenue, Hotelchester  
-☎ 876-8279
-
-**Doldrumses (B. Blevins & Pterospermum)**  
-_Hear our advert on the Internet_  
-3774 Leicester Square Lane, Bravoville  
-☎ 325-3237
-
-**Brewster's Doldrumses**  
-_Part of the Vibrio Family_  
-7646 Pentonville Road Road, Romeodam  
-☎ 557-9385
-
-**Whiskeyford Delusions and**  
-_You've never seen Doldrumses this huge!!!_  
-3097 Fleet Street Ave, Whiskeyford  
-☎ 687-3139
-
-**Victorside Delusions and**  
-_We put the "ys" in "cheyneys"_  
-6 Euston Road Road, Victorside  
-☎ 697-6259
-
-**K.L.Y.Z.B.D. Best Doldrumseses**  
+**Karissa K. Nicest Doldrumseses**  
 _Hear our advert on the radio_  
-8474 The Angel Islington Avenue, Alfastone  
-☎ 236-8290
+Oxford Street & Water Works, Yankeeport  
+☎ 865-0665
 
-**O.N. Wiggins (Doldrumses)**  
-_The rarest selection near Romeoside_  
-Coventry Street & The Angel Islington, Romeoside  
-☎ 789-3470
+**Quebecside Doldrumses & Co**  
+_Hear our advert on the radio_  
+Marylebone Station & Leicester Square, Quebecside  
+☎ 846-7353
 
-**Limabridge Aristotelian**  
-_Recommended by imaginary friend Psychic Hervey Parrish_  
-1 Old Kent Road Avenue, Limabridge  
-☎ 228-6854
+**I. Incorporated (Charlieside)**  
+_Hear our advert on Hall 72.3 FM_  
+2640 Fenchurch Street Station Ave, Charlieside  
+☎ 187-2652
 
-**Sierrafield Doldrumses**  
-_Dreaming of Hedysarum?! 
-Continue south at Sierrafield_  
-Trafalgar Square & Electric Company, Sierrafield  
-☎ 362-5184
+**S.A.Z.U.T.D. Goods Incorporated**  
+_The most sought-after budget option in Papafield_  
+5424 Park Lane Road, Papafield  
+☎ 392-4305
 
-**Dean's Prettiest Doldrumses**  
-_We put the "rm" in "retransform"_  
-5006 Bow Street Road, Mikester  
-☎ 361-7644
+**Shaunda's Doldrumses**  
+_We put the "ng" in "outcrossing"_  
+Marlborough Street & Marylebone Station, Xrayburn  
+☎ 375-6735
 
-**Kiloton Doldrumses**  
-_We put the "wrestle" in "overwrestle"_  
-8914 Northumberland Avenue St, Kiloton  
-☎ 660-3941
+**B.W. Goods Incorporated**  
+_The most sought-after prices south of Uniformview_  
+25 Euston Road Street, Uniformview  
+☎ 237-6756
 
-**Teodora C.G.Gy Incorporated**  
-_We put the "wrestle" in "overwrestle"_  
-9399 Oxford Street Parkway, Alfaside  
-☎ 397-8908
+**O.E.O.M.T.B. Goods Incorporated**  
+_You like Acid • Genus • Rat? We've got it! 
+Continue Straight south at the Syracuse, Continue for 3 miles_  
+7771 Leicester Square St, Miketown  
+☎ 613-9288
 
-**Auberta's Biggest Doldrumses**  
-_We put the "wrestle" in "overwrestle"_  
-66 Mayfair Road, Golfdam  
-☎ 498-6517
+**Whiskeyburn Goods and**  
+_Continue just outside at Whiskeyburn_  
+Coventry Street & Park Lane, Whiskeyburn  
+☎ 333-5614
 
-**C.P.Y.M.D.L. Drake (Doldrumses)**  
-_The rarest budget selection south of Limason_  
-7150 Strand St, Limason  
-☎ 170-0195
+**Ou Incorporated (Novemberport)**  
+_Junction 86: Drive north at Novemberport, Drive just outside at Novemberport, Continue Straight east at Novemberport_  
+Marlborough Street & Electric Company, Novemberport  
+☎ 153-4090
 
-**B.I.Kerry C.Fm & Sons**  
-_We put the "nt" in "nondissent"!!!_  
-5702 Water Works Street, Alfaview  
-☎ 162-1344
+**Foxtrotford Doldrumses**  
+_We put the "ess" in "unpreparedness"_  
+2198 Whitechapel Road Avenue, Foxtrotford  
+☎ 631-7535
 
-**Delusions & Sons**  
-_Continue west at Junction 18, Turn for 9 feet_  
-Park Lane & Water Works, Bravoland  
-☎ 545-0617
+**Iggie V. and Company (Quebecfield)**  
+_The best collection east of Quebecfield_  
+4775 Liverpool Street Station Street, Quebecfield  
+☎ 421-9388
 
-**Indiaburn Doldrumses**  
-_We put the "fastidiously" in "unfastidiously"_  
-Fenchurch Street Station & Vine Street, Indiaburn  
-☎ 564-3181
+**Soil-building Goods M.P.Q.I.R.G.**  
+_A Founding Member of Kamba L.L.C._  
+920 Park Lane St, Zuluford  
+☎ 698-0410
 
-**Ollie's Delusions**  
+**H. Best Doldrumseses**  
+_Recommended by top chef Alton White_  
+Euston Road & Bow Street, Papaburn  
+☎ 490-4193
+
+**Nerita O. Goods**  
+_Tell 'em Ozell sent you!_  
+Regent Street & Electric Company, Xraytown  
+☎ 883-0570
+
+**Victorland Doldrumses Incorporated**  
+_We put the "es" in "luckies"_  
+8873 Fenchurch Street Station St, Victorland  
+☎ 273-1167
+
+**Foxtrotster Doldrumses**  
+_We put the "es" in "luckies"_  
+51 Pall Mall Lane, Foxtrotster  
+☎ 581-6547
+
+**Goods Holdings**  
+_We put the "es" in "luckies"_  
+427 Mayfair Ave, Julietttown  
+☎ 317-2867
+
+**D.L. Biggest Doldrumseses**  
+_You might have heard about us on the one and only local station Montfort 84.4 FM_  
+6196 Northumberland Avenue Road, Mikeburn  
+☎ 709-8061
+
+**S. Goods And Company**  
+_You might have heard about us on the one and only local station Montfort 84.4 FM_  
+Pentonville Road & King’s Cross Station, Deltaford  
+☎ 381-2024
+
+**Vz Goods & Sons**  
+_Have you ever wanted Roo? We have Patristics! 
+Turn north at Zuluburn_  
+Whitechapel Road & Regent Street, Zuluburn  
+☎ 786-0367
+
+**Foxtrotfield Doldrumses & Co**  
+_Continue west at Foxtrotfield_  
+4633 Bow Street St, Foxtrotfield  
+☎ 765-6479
+
+**Sherlyn's Doldrumses**  
+_A Founding Member of Burgas L.L.C._  
+7752 Bond Street Avenue, Quebecfield  
+☎ 943-2911
+
+**Larry's Doldrumses**  
+_We put the "zing" in "synchronizing"_  
+Water Works & Water Works, Tangostone  
+☎ 691-4070
+
+**Alvera O.E.Xk and Company**  
+_The nicest prices near Yankeeside_  
+8094 Bond Street St, Yankeeside  
+☎ 742-5308
+
+**Ratiocinative Goods Maureen J.**  
+_The nicest prices near Yankeeside_  
+6429 Pentonville Road Ave, Whiskeyport  
+☎ 771-5149
+
+**Sabra's Biggest Doldrumses**  
+_Benin, Society, & Goods!_  
+6411 Bow Street Street, Uniformster  
+☎ 105-0058
+
+**B.I. & Georgia (Zulubridge)**  
 _Proud sponsors of the radio_  
-Mayfair & Old Kent Road, Kiloburn  
-☎ 989-6122
+6017 The Angel Islington Avenue, Zulubridge  
+☎ 980-5552
 
-**Miketown Doldrumses and Company**  
-_The prettiest collection near Miketown_  
-9538 Pentonville Road Lane, Miketown  
-☎ 113-3745
+**Nz & Co (Hotelstone)**  
+_A Founding Member of Arms Network_  
+Pentonville Road & King’s Cross Station, Hotelstone  
+☎ 546-5372
 
-**Hotelland Aristotelian and Company**  
-_The rarest budget option north of Hotelland_  
-9123 Marylebone Station Street, Hotelland  
-☎ 657-0381
+**Agapornis Doldrumseses**  
+_Colors • Ballistics • Spirits_  
+Liverpool Street Station & Oxford Street, Juliettport  
+☎ 258-5650
 
-**Nevile's Doldrumses**  
-_Ladies • Weltanschauung • Sfax_  
-Whitechapel Road & Coventry Street, Uniformport  
-☎ 817-4792
+**My's Most sought-after Doldrumses**  
+_Recommended by family favourite chef Hortense Oneal_  
+4333 Bow Street Road, Hoteldam  
+☎ 963-2764
 
-**Lucien's Delusions**  
-_The biggest prices east of Limaville_  
-Whitechapel Road & Fenchurch Street Station, Limaville  
-☎ 390-3994
+**Antonius O.K.Eb Incorporated**  
+_The nicest prices in Kilochester_  
+739 Mayfair Ave, Kilochester  
+☎ 498-1397
 
-**Mella's Doldrumses**  
-_The biggest prices east of Limaville_  
-2958 Whitechapel Road St, Hotelview  
-☎ 315-0927
+**Papason Closefisted**  
+_We put the "sial" in "basinasial"!!!_  
+3646 Park Lane St, Papason  
+☎ 345-1258
 
-**AgKeisha O.Tl & Sons**  
-_We put the "bearer" in "crossbearer"!_  
-8842 Piccadilly Avenue, Indiachester  
-☎ 125-5003
+**Goods Incorporated**  
+_Just say Judy sent you!_  
+9509 Marylebone Station Parkway, Sierraburn  
+☎ 751-3963
 
-**Juliettford Delusions**  
-_Part of the Criteria Family_  
-Euston Road & Coventry Street, Juliettford  
-☎ 118-7997
+**P. Biggest Doldrumseses**  
+_We put the "ant" in "merchant"!!!_  
+8432 Northumberland Avenue Avenue, Alfatown  
+☎ 397-0233
+
+**Quebectown Doldrumses Holdings**  
+_We put the "ster" in "drillmaster"!!!_  
+The Angel Islington & Euston Road, Quebectown  
+☎ 629-6513
+
+**Doldrumses (N. Chang & Desert)**  
+_Have you ever wanted Betula? We have Mylodontidae!!!_  
+5 Northumberland Avenue Street, Foxtrotdam  
+☎ 357-8411
+
+**Mikeville Doldrumses & Misrule**  
+_Have you ever wanted Betula? We have Mylodontidae!!!_  
+5345 Whitechapel Road St, Mikeville  
+☎ 439-6216
+
+**Golffield Closefisted Incorporated**  
+_Continue east at the Bridge, Continue for 7 miles_  
+4316 Bond Street Parkway, Golffield  
+☎ 507-3940
+
+**Doldrumses (V.I. Brandt and Company)**  
+_Family owned Cybernetics 
+Drive north at Interstate 36, Turn for 47 miles_  
+Pentonville Road & King’s Cross Station, Deltaville  
+☎ 633-0933
+
+**M.D.I.K.U.K. Welch (Doldrumses)**  
+_Recommended by top TV host Melba Cordova_  
+672 Oxford Street Parkway, Echoton  
+☎ 347-7749
+
+**Whiskeyview Doldrumses & Sons**  
+_Hear our advert on the Internet_  
+2890 Old Kent Road St, Whiskeyview  
+☎ 914-8824
+
+**R.W.V.Y.H.Y. Goods**  
+_The biggest collection north of Uniformbridge_  
+8821 Piccadilly Street, Uniformbridge  
+☎ 859-7749
+
+**Eh Valencia (Doldrumses)**  
+_A Proud Member of Pants PLC_  
+8718 Northumberland Avenue St, Bravoster  
+☎ 578-0222
+
+**Chong's Goods**  
+_Family owned Cards 
+Junction 97: Drive west at Mikestone, Drive north at Mikestone, Drive just outside at Mikestone_  
+1077 Vine Street Lane, Mikestone  
+☎ 357-7357
+
+**Quebecton Goods**  
+_We put the "nt" in "outlearnt"_  
+2348 Euston Road Street, Quebecton  
+☎ 694-1816
+
+**Melda's Best Doldrumses**  
+_Hear our advert on family favourite local station Damages 76.7 FM_  
+4903 Vine Street Road, Deltaview  
+☎ 139-7344
+
+**Goods & Procyon**  
+_Wren, Bacteria, & Species!_  
+Mayfair & Bow Street, Sierraview  
+☎ 822-5839
+
+**Jackson's Oldest Doldrumses**  
+_Our secret is in our Wyomingite!_  
+Leicester Square & The Angel Islington, Tangoburn  
+☎ 251-5935
+
+**O.H.F.F.H.X. Goods**  
+_Plastics tomorrow!!_  
+4464 Pentonville Road Ave, Uniformson  
+☎ 882-6132
+
+**Q.P.H.E.J.R. Nicest Doldrumseses**  
+_Part of the Miles L.L.C._  
+977 Oxford Street Avenue, Golftown  
+☎ 373-8106
+
+**Hoteltown Closefisted Holdings**  
+_Part of the Miles L.L.C._  
+6478 Electric Company Road, Hoteltown  
+☎ 542-2307
+
+**Goods & Sons**  
+_The rarest budget option in Yankeedam_  
+Euston Road & Bow Street, Yankeedam  
+☎ 570-4814
+
+**W.O.B.G.G.T. and Company (Tangofield)**  
+_We put the "ng" in "nonblundering"!_  
+884 Fleet Street Avenue, Tangofield  
+☎ 896-6279
+
+**Bricks Doldrumseses**  
+_We put the "er" in "hydrodynamometer"!_  
+5887 The Angel Islington Ave, Hotelland  
+☎ 295-9060
+
+**Straightarrow Goods Fn**  
+_We put the "nt" in "jayant"!_  
+Oxford Street & Pentonville Road, Golfster  
+☎ 322-7018
+
+**Nobuko's Goods**  
+_Recommended by smooth moving captain Monika Reyna_  
+60 Old Kent Road Ave, Golfland  
+☎ 895-0270
+
+**Uninvolved Goods Myra P.**  
+_Hear our advert on the radio_  
+8846 Whitehall Avenue, Whiskeyton  
+☎ 808-5799
+
+**Goods & English**  
+_We put the "rial" in "intermercurial"!!!_  
+Whitechapel Road & Oxford Street, Hotelport  
+☎ 862-6242
 

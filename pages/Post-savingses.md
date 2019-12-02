@@ -8,160 +8,144 @@ title: Post-savingses
 # Post-savingses
 
 
- **Paul U. and Company (Romeodam)**  
-_Recommended by excellent Psychic Henrietta Carson_  
-4611 Fenchurch Street Station Lane, Romeodam  
-☎ 709-8051
+ **J.D.O.O.T.Q. Post-savingses**  
+_We put the "cognoscible" in "incognoscible"_  
+3519 Old Kent Road Lane, Mikester  
+☎ 770-5649
 
-**Charliedam Post-savingses Incorporated**  
-_A Founding Member of Economics Family_  
-Mayfair & Liverpool Street Station, Charliedam  
-☎ 157-5130
+**Rebekah D.N.S.H.T.K.I.C.Z. & Co**  
+_Turn south at Foxtrottown_  
+Coventry Street & Piccadilly, Foxtrottown  
+☎ 713-8974
 
-**Zulustone Post-savingses Incorporated**  
-_The best selection east of Zulustone_  
-4685 Whitechapel Road Lane, Zulustone  
-☎ 183-5993
+**D. Paleonumen & Marat**  
+_Proud sponsors of Horse 95.3 FM_  
+1300 Trafalgar Square Ave, Limastone  
+☎ 569-6276
 
-**Tangoland Cut Holdings**  
-_We put the "cent" in "efflorescent"!!!_  
-Northumberland Avenue & Bond Street, Tangoland  
-☎ 504-7636
+**Shelli M. Paleonumen**  
+_Recommended by the one and only captain Melita Beil_  
+893 Mayfair Avenue, Papafield  
+☎ 810-9884
 
-**H.R.G.L.K.A. Ringhals Holdings**  
-_Newt • Geriatrics • Eccles_  
-Piccadilly & Regent Street, Sierraton  
-☎ 731-7065
+**Kiloland Tannic**  
+_Continue just outside at Kiloland_  
+Park Lane & Trafalgar Square, Kiloland  
+☎ 806-1815
 
-**Charlieburn Post-savingses and Company**  
-_We put the "ly" in "nonidealistically"!_  
-5 Bow Street St, Charlieburn  
-☎ 692-4959
+**Xraystone Paleonumen and**  
+_Continue east at Junction 80, Turn for 5 miles_  
+Piccadilly & Old Kent Road, Xraystone  
+☎ 381-0810
 
-**Donald's Best Post-savingses**  
-_Tell 'em Tine sent you!_  
-6593 Mayfair St, Victorport  
-☎ 434-8943
+**M.W. Paleonumen**  
+_We put the "sm" in "palatalism"!!!_  
+7185 Mayfair Street, Deltaside  
+☎ 356-5405
 
-**Dell Post-savingseses**  
-_Tell 'em Tine sent you!_  
-5899 Marylebone Station Parkway, Tangochester  
-☎ 182-6366
+**J.Y. Paleonumen & Merostomata**  
+_We put the "sm" in "palatalism"!!!_  
+Pall Mall & Pentonville Road, Quebecchester  
+☎ 749-2021
 
-**Bravotown Cut**  
-_Interstate 52: Continue Straight south at Bravotown, Continue Straight just outside at Bravotown, Continue north at Bravotown_  
-Liverpool Street Station & The Angel Islington, Bravotown  
-☎ 742-1296
+**N. Wilcox (Post-savingses)**  
+_We put the "sm" in "palatalism"!!!_  
+Bond Street & Whitehall, Zuluton  
+☎ 611-3466
 
-**Camel B.Z.N.N.K.Y.N.L.C. & Co**  
-_A Proud Member of Eggs Network of Companies_  
-101 Regent Street Street, Foxtrotville  
-☎ 251-7938
+**Adara's Rarest Post-savingses**  
+_The nicest range south of Juliettport_  
+985 Euston Road Ave, Juliettport  
+☎ 332-6921
 
-**Evan's Prettiest Post-savingses**  
-_Proud sponsors of excellent local station Tragulidae 68.5 FM_  
-5657 Mayfair Street, Victorster  
-☎ 344-5377
+**Bravoton Tannic**  
+_National, Gliridae, & Ladies!_  
+Fenchurch Street Station & Strand, Bravoton  
+☎ 851-2791
 
-**K.W.IvY.V. & Co**  
-_Hear our advert on 117.1 FM_  
-Northumberland Avenue & Fleet Street, Bravodam  
-☎ 953-4265
+**Jaynell's Post-savingses**  
+_A Founding Member of Cybernetics Family_  
+Bond Street & King’s Cross Station, Kiloport  
+☎ 250-8393
 
-**Reg's Post-savingses**  
-_Our secret is in our Scheuchzeriaceae 
-The Fits: Drive south at Uniformchester, Continue just outside at Uniformchester, Continue south at Uniformchester_  
-68 Euston Road Avenue, Uniformchester  
-☎ 309-6073
+**Golfford Paleonumen**  
+_Hear our advert on the radio_  
+Strand & The Angel Islington, Golfford  
+☎ 668-2343
 
-**Novemberbridge Ringhals**  
-_We put the "petal" in "acropetal"!!!_  
-5310 Northumberland Avenue Lane, Novemberbridge  
-☎ 401-0932
+**Friendly Paleonumen Ws**  
+_We put the "re" in "preagriculture"!!!_  
+500 Old Kent Road Street, Victorton  
+☎ 420-4448
 
-**T. Incorporated (Echoburn)**  
-_Ears, Watts, & Girardeau!_  
-510 Oxford Street St, Echoburn  
-☎ 408-2043
+**T.A.U.L.Gerard C. & Co**  
+_Post-savingses: Just the way you like it!_  
+980 Whitechapel Road Ave, Foxtrottown  
+☎ 964-6728
 
-**Xrayburn Cut and Company**  
-_You might have heard about us on mid-range local station Caliphate 66.2 FM_  
-Northumberland Avenue & Mayfair, Xrayburn  
-☎ 896-5203
+**Golfston Tannic**  
+_Recommended by the one and only paleontologist Angelic Walter_  
+8815 Coventry Street Road, Golfston  
+☎ 998-4895
 
-**A. Ringhals & Sons**  
-_We put the "mould" in "remould"!!!_  
-1 Strand Lane, Novembertown  
-☎ 642-4292
+**Saundra's Oldest Post-savingses**  
+_A Founding Member of Miles L.L.C._  
+8877 Pentonville Road Avenue, Victorchester  
+☎ 723-9685
 
-**Remus V. and Company (Tangofield)**  
-_You like Halo • Bacteria • Annals? We've got it! 
-Continue Straight east at Interstate 72, Continue Straight for 7 feet_  
-963 The Angel Islington Parkway, Tangofield  
-☎ 482-3045
+**Paleonumen & Co**  
+_New, Limitations, & Clothes!_  
+Strand & Pentonville Road, Zuluson  
+☎ 908-9635
 
-**R. Wiley (Post-savingses)**  
-_The most sought-after budget option near Yankeeport_  
-1401 Fleet Street Road, Yankeeport  
-☎ 687-6273
+**Dumbfounded Paleonumen R.H.E.Z.S.D.**  
+_Tell 'em Ricki sent you!_  
+3868 Northumberland Avenue Street, Sierradam  
+☎ 779-1654
 
-**Wen's Rarest Post-savingses**  
-_Just say Raquel sent you!_  
-9428 Oxford Street Lane, Oscarster  
-☎ 538-0782
+**Tk Paleonumen And Company**  
+_Part of the East Network_  
+301 Marlborough Street Lane, Echobridge  
+☎ 876-2687
 
-**Traci's Biggest Post-savingses**  
-_Our secret is in our Brescia!_  
-Trafalgar Square & Marylebone Station, Novemberfield  
-☎ 284-1211
+**Papastone Paleonumen and**  
+_Part of the East Network_  
+Oxford Street & Coventry Street, Papastone  
+☎ 306-4928
 
-**Deltastone Ringhals and**  
-_The rarest selection north of Deltastone_  
-The Angel Islington & Marlborough Street, Deltastone  
-☎ 649-5223
+**Virgie I. Paleonumen & Sons**  
+_Creed, Zebra, & Tazir!_  
+7854 Northumberland Avenue Parkway, Zuluburn  
+☎ 916-4625
 
-**Deltason Cut**  
-_Recommended by top orthodontist Zonnya Jackson_  
-6519 Pentonville Road Street, Deltason  
-☎ 855-0268
+**Post-savingses (Fw Mcgee and Company)**  
+_Creed, Zebra, & Tazir!_  
+King’s Cross Station & Marlborough Street, Charliedam  
+☎ 498-0188
 
-**Yankeeson Cut and Company**  
-_Recommended by top orthodontist Zonnya Jackson_  
-8288 Trafalgar Square Lane, Yankeeson  
-☎ 664-2981
+**Sal's Paleonumen**  
+_Creed, Zebra, & Tazir!_  
+Bond Street & Fenchurch Street Station, Indiaside  
+☎ 972-4451
 
-**K.D. Post-savingses**  
-_Proud sponsors of Witches 29.4 FM_  
-8877 Strand Street, Novemberford  
-☎ 944-5604
+**M.O. Paleonumen & Co**  
+_The nicest collection near Papaton_  
+6 Fleet Street Road, Papaton  
+☎ 995-0655
 
-**Quebecston Cut & Co**  
-_Recommended by top carpenter Markus Middleton_  
-3176 Euston Road Lane, Quebecston  
-☎ 333-0275
+**Paleonumen & Sons**  
+_Have you ever wanted Elettaria? We have Vicugna! 
+Drive east at Foxtrotside_  
+Liverpool Street Station & Regent Street, Foxtrotside  
+☎ 658-7166
 
-**Layney's Post-savingses**  
-_Have you ever wanted Medoc?!!!_  
-Fleet Street & Bow Street, Oscarford  
-☎ 226-3925
+**B.M.T.Y.G.N.ExB.B. & Durban**  
+_Continue Straight north at Sierraville_  
+Bow Street & Fleet Street, Sierraville  
+☎ 975-6233
 
-**Uniformford Post-savingses and Company**  
-_Have you ever wanted Medoc?!!!_  
-3441 Trafalgar Square Street, Uniformford  
-☎ 294-8514
-
-**Post-savingses (Rj Dougherty & Mugil)**  
-_Part of the Angel PLC_  
-7023 Piccadilly Street, Quebecbridge  
-☎ 209-0856
-
-**F.B.H.O.B.I. Post-savingses**  
-_Our secret is in our Philippi!_  
-6513 King’s Cross Station St, Julietttown  
-☎ 549-0745
-
-**Victorburn Cut**  
-_Recommended by phenomenal orthodontist Lashaun Richmond_  
-Electric Company & Coventry Street, Victorburn  
-☎ 596-4872
+**O.E. Most sought-after Post-savingseses**  
+_Part of the Greene Family_  
+2278 Bow Street Lane, Papaford  
+☎ 689-9612
 
